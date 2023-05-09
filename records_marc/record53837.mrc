@@ -1,0 +1,1 @@
+00362nam--2200109-i-45000010010000000020009000100050015000190080041000341000014000752450125000892600038002140000030812016123020161230201025060222s1000------------r-----000-0-eng-d  aCharles,V  aProblemes elementaires de physique atomique et de chimie nucleaire avec tableaux et solu tions.preface de ch.noel martin  aParis,Gauthier Villars,1955. 145p

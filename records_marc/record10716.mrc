@@ -1,0 +1,1 @@
+00380nam--2200109-i-45000010010000000020009000100050015000190080041000342450133000752600052002088520010002600000462232016123020161230201045060222s1000------------r-----000-0-eng-d  aUniversite de montpellier. quinzaine des sciences nucleaires (24 mars - 8 avril 1963). vol.1. utilisation de l`energie nucleaire  aParis, Masson & C-ie Editeurs, 1963, Xii + 646p  a18145

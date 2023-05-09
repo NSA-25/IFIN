@@ -1,0 +1,40 @@
+<?xml version="1.0" encoding="UTF-8"?>
+<collection xmlns="http://www.loc.gov/MARC21/slim">
+    <record>
+        <leader>00431nam--2200169-u-4500</leader>
+        <controlfield tag="001">000056941</controlfield>
+        <controlfield tag="002">20221212</controlfield>
+        <controlfield tag="005">20221212053319</controlfield>
+        <controlfield tag="008">221212s1000------------r-----000-0-rum-d</controlfield>
+        <datafield ind1=" " ind2=" " tag="040">
+            <subfield code="a">IFIN-HH</subfield>
+        </datafield>
+        <datafield ind1=" " ind2=" " tag="041">
+            <subfield code="a">rum</subfield>
+        </datafield>
+        <datafield ind1="1" ind2=" " tag="100">
+            <subfield code="a">Hulubei, Horia</subfield>
+        </datafield>
+        <datafield ind1="1" ind2=" " tag="245">
+            <subfield code="a">Curs de structura materiei. Vol. 2</subfield>
+            <subfield code="c">Horia Hulubei</subfield>
+        </datafield>
+        <datafield ind1=" " ind2=" " tag="260">
+            <subfield code="a">Magurele</subfield>
+            <subfield code="b">Editura Horia Hulubei</subfield>
+            <subfield code="c">2022</subfield>
+        </datafield>
+        <datafield ind1=" " ind2=" " tag="300">
+            <subfield code="a">118 p.</subfield>
+        </datafield>
+        <datafield ind1=" " ind2=" " tag="852">
+            <subfield code="a">82870</subfield>
+            <subfield code="c">HH</subfield>
+        </datafield>
+        <datafield ind1=" " ind2=" " tag="CAT">
+            <subfield code="a">SYS</subfield>
+            <subfield code="c">20221212</subfield>
+            <subfield code="h">053319</subfield>
+        </datafield>
+    </record>
+</collection>

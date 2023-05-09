@@ -1,0 +1,1 @@
+00334nam--2200109-i-45000010010000000020009000100050015000190080041000342450082000752600048001577000019002050000167662016123020161230201031060222s1000------------r-----000-0-eng-d  aCambridge studies in modern optics. vol.4: optical instatilities. proceedings  aCambridge, Cambridge University Press, 1986  aBoyd, Robert W

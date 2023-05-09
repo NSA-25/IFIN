@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000342450075000752600037001504900047001878520011002340000069622016123020161230201027060222s1000------------r-----000-0-eng-d  aBibliographie de la documentation et de la bibliotheconomie.annee:1963  aLa Haye Willem Witsenplein,1959-  aFederation Internationale De Documentation  aD.1023

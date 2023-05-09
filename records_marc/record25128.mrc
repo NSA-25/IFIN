@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000041000752450093001162600039002098520009002480000318082016123020161230201038060222s1000------------r-----000-0-eng-d  aMatzke, H., Gelbke, W.Und Geselle, P  aEinversenkbares messgerat fur hydrographische, speziell optische seewasseruntersuchungen  aBerlin, Akademie-verlag, 1953, 70p  a4135

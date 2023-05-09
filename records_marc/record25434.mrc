@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000342450052000752600053001277000066001808520010002460000315022016123020161230201038060222s1000------------r-----000-0-eng-d  aSymposium on microelectronics and large systems  aWashington, Spartan Books, Inc., 1965, Vi + 272p  aMathis, Samuel J., Wiley, Richard E.And Spandforfer, Lester M  a24688

@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450090000922600054001828520009002360000367312016123020161230201041060222s1000------------r-----000-0-eng-d  aPlummer, A.R  aThe effect of heat treatment on the breakdown characteristics of silicon on junctions  aReprinted From Journal Of Electronics And Control  a5701

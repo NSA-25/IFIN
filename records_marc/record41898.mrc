@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000341000051000752450073001262600051001998520010002500000150232016123020161230201031060222s1000------------r-----000-0-eng-d  aPassynkow, W.W., Daweljewm G.A.Und Tschirrin,L  aBucherei der hochfrequenztechnik. nichtlineare halbleiterwiderstande  aLeipzig, Akademische Verlagsgesellschaft, 1965  a12331

@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000341000044000752450074001192600041001934900015002340000112652016123020161230201029060222s1000------------r-----000-0-eng-d  aBurrous, Clifford N.And Deboo, Gordon J  aIntegrated circuits and semiconductor. devices theory and application  aNew York, Mcgraw-hill Book Co., 1971  aXv + 655 P

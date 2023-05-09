@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450071000942600071001658520010002360000480142016123020161230201046060222s1000------------r-----000-0-eng-d  aKeyser, Carl A  aMaterials of engineering. properties, fabrication uses and testing  aNew Jersey, Englewood Cliffs, Prentice Hall, 1956, Xiv+502p.Cu Fig  a13070

@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450114000912600042002058520010002470000299462016123020161230201038060222s1000------------r-----000-0-eng-d  aKuster, F.W  aLogarithmische rechentafeln fur chemiker, pharmazeuten, mediziner und physiker..neubearbeitet von k.fischbeck  aBerlin, Gruyter, 1956. Xvi+302p. +1pl  a12126

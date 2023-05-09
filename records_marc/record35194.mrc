@@ -1,0 +1,1 @@
+00366nam--2200109-i-45000010010000000020009000100050015000190080041000342450102000752600069001778520010002460000217282016123020161230201034060222s1000------------r-----000-0-eng-d  aSixt hot laboratories and equipment conf. int.amphitheatre, chicago, illinois, march 19-21, 19958  aOak Ridge, Tenn., Oak Ridge National Laboratory, 1959. Iv + 167p  a15026

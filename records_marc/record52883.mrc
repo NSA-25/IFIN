@@ -1,0 +1,1 @@
+00366nam--2200121-i-45000010010000000020009000100050015000190080041000341000015000752450110000902600034002008520010002340000040352016123020161230201025060222s1000------------r-----000-0-eng-d  aChampeix,R  aPhysique et technique des tubes electroniques. preface de g.a.boutry tome i:elements de technique de vide  aParis,Dunod,1958. Xiv + 214 P  a13184

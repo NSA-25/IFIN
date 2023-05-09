@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000342450082000752600051001577000031002088520010002390000315942016123020161230201038060222s1000------------r-----000-0-eng-d  aLecture notes in pure and applied mathematics. vol.38:semisimple lie algebras  aNew York, Marcel Dekker Inc., 1978. Vii + 480p  aGoto,M. And Grosshans, F.D  a46568

@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000342450054000752600050001294900059001798520008002380000027122016123020161230201025060222s1000------------r-----000-0-eng-d  aBalances, weights and precise laboratory weighing  aLondon, Her Majesty S Stationery Office, 1955  aNational Physical Laboratory, Notes On Applied Science  a542

@@ -1,0 +1,1 @@
+00378nam--2200109-i-45000010010000000020009000100050015000190080041000342450165000757000018002408520010002580000426902016123020161230201043060222s1000------------r-----000-0-eng-d  aThe statesman`s year book. statistical and historical annual of the state of the world for the year 1964-1965.`london, macmillan & co.ltd.,1964. xxviii + 1716 p  aS.H.Steinberg  a19786

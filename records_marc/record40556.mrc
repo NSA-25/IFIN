@@ -1,0 +1,1 @@
+00330nam--2200109-i-45000010010000000020009000100050015000190080041000341000026000752450077001012600042001780000163652016123020161230201031060222s1000------------r-----000-0-eng-d  aDegrange Bernard Jean  aEtude directe des modes natures dedensite gration de meson   :  et these  aOrsay,Universite,1969. 220 P.+ Annexe

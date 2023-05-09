@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000042000752450077001172600049001948520010002430000277492016123020161230201037060222s1000------------r-----000-0-eng-d  aKrivan, V., Tolgyessy, J.And Varga, S  aNuclear analytical chemistry. iii: radiochemical and activation analysis  aBaltimore, University Park Press, 1971, 299p  a42623

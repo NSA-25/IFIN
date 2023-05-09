@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000341000023000752450095000982600056001938520010002490000050002016123020161230201026060222s1000------------r-----000-0-eng-d  aBailleul ,G. /S.A.  aAktive kohle und ihre industrielle verwendung dritte, umgearbeitete und erweiterte auflage  aStuttgart,Ferdinand Enke Verlag ,1953.143p.+ 56 Fig  a1531O

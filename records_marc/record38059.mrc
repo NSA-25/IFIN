@@ -1,0 +1,1 @@
+00363nam--2200109-i-45000010010000000020009000100050015000190080041000342450133000752600035002088520010002430000188632016123020161230201032060222s1000------------r-----000-0-eng-d  aTroisieme congres de calcul et de traitement de l information afcalti.publie avec le concurs du c.n.r.s. toulouse 14-17 mai 1963  aParis, Dunod, 1965. Ix + 406 P  a23951

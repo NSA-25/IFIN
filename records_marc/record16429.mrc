@@ -1,0 +1,1 @@
+00362nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450103000942600034001978520009002310000405072016123020161230201042060222s1000------------r-----000-0-eng-d  aSchafer,Walter  aChemie in theorie und praxis. bd.1:theoretisches und praktisches werkzeug fur die chemische arbeit  aLeipzig, Fachbuchverlag, 1957  a6823

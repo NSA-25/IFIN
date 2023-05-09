@@ -1,0 +1,1 @@
+00349nam--2200121-i-45000010010000000020009000100050015000190080041000341000031000752450035001062600045001414900041001860000099182016123020161230201028060222s1000------------r-----000-0-eng-d  aBonati, F.And Malatesta, L  aIsocyanide complexes of metals  aLondon, A Wileu-interscience Publ., 1969  aInterscience Monographs On Chemistry

@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450023000922600088001154900043002030000343542016123020161230201040060222s1000------------r-----000-0-eng-d  aNica, Adrian  aPopescu, alexandru  aAparate Electrice Pentru Masurari Industriale.Control. Reglare. Incercare. Reparare  aBucuresti, Editura Tehnica, 1978. 255p

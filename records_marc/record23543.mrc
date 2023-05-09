@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000341000014000752450102000892600046001918520009002370000333932016123020161230201039060222s1000------------r-----000-0-eng-d  aMoussa, A  aGenerateur de courant stabilise pour l`alimentation d`un spectrometre magnetique pour rayons beta  aLyon, Institut De Physique Nucleaire, 13p  a6079

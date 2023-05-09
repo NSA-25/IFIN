@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450103000932600055001968520009002510000446312016123020161230201044060222s1000------------r-----000-0-eng-d  aThiess, Artur  aEinfuhrung in die niederfrequente fernsprechubertragunstechnik. mit fernmeldetechnischen grunlagen  aLiepzig, Fachbuchverlag, 1952, Xii+323p.Cu Ilusstr  a3660

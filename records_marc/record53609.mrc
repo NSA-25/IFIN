@@ -1,0 +1,1 @@
+00369nam--2200109-i-45000010010000000020009000100050015000190080041000342450127000752600047002028520010002490000033092016123020161230201025060222s1000------------r-----000-0-eng-d  aActes du 2-e congres international de photo- graphie et cinematographie... paris, 1954, presentees par p.naslin et j.vivie  aParis, Dunod, 1956 Xxviii + 456 P.In Folio  a12998

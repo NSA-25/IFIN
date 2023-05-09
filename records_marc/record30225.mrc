@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000340800011000752450093000862600064001798520010002430000267102016123020161230201036060222s1000------------r-----000-0-eng-d  a53.081  aInstructiuni privind aplicarea sistemului international de unitati de masura (si) in rsr  aBucuresti, Of.De Stat Pt.Metrologie, 1968. 29p. Ed.Oficiala  a29859

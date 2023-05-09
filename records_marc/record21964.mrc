@@ -1,0 +1,1 @@
+00382nam--2200109-i-45000010010000000020009000100050015000190080041000342450155000752600032002308520010002620000349722016123020161230201040060222s1000------------r-----000-0-eng-d  aNouveau traite de chimie minerale. publie sous la direction de paul pascal. t.1: generalites-air-eau-hydrogene-deuterium-tritium-helium et gas inertes  aParis, Masson Et C-ie, 1956  a11900

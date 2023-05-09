@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450112000952600034002078520010002410000162412016123020161230201031060222s1000------------r-----000-0-eng-d  aLinares,Bernard  aEtude et realisation d un convertisseur temps amlitude utilisant des transitors an regime d avalanche.these  aBordeaux,Universite,1963. 56p  a77988

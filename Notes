@@ -1,0 +1,12 @@
+Removed 'L' subfields (not MARC21 standard)
+Fields having only 'L' as subfield, removing subfield, value will be None
+FMT converted to 008 (old version)
+
+FMT, LDR, LNG and IDN have no values in .mrc
+Removing all in the .mrc files folder
+
+Records can have weird characters in values in subfields (u00f3)
+Removed ". \ /" from being last characters in a value
+
+.mrc files are made from the corrected .json files
+.xml files are made from the .mrc files

@@ -1,0 +1,1 @@
+00354nam--2200109-i-45000010010000000020009000100050015000190080041000342450104000752600053001794900012002320000074422016123020161230201027060222s1000------------r-----000-0-eng-d  aColloque sur les appareils a radioisotopes dans l industrie et en geophysique. resumes des memoires  aVarsovie, Agence Intern.De L Energie Atom., 1965  aPag.Dif

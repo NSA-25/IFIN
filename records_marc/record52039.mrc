@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000341000025000752450109001002600035002098520010002440000048812016123020161230201026060222s1000------------r-----000-0-eng-d  aChaux,R.,Willemart,A  aLes grandes fonctions de la chimie organique et leurs principles applications.deuxieme edition augmentee  aParis,Dunod.,1958. Xxv + 928 P  a14800

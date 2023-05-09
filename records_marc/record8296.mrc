@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000341000045000752450087001202600044002078520009002510000486442016123020161230201047060222s1000------------r-----000-0-eng-d  aAgeikin,D.I.,Kosstina,E.N.,Kyznecova,N.N  aDatchiki sistem avtomaticheskogo kontrolia i regulirovaniia. spravochnye materialy  aMoskva, Mashgiz, 1959. 578 S. + 311 Ris  a6620

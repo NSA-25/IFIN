@@ -1,0 +1,1 @@
+00370nam--2200109-i-45000010010000000020009000100050015000190080041000342450087000752600058001624900040002200000470942016123020161230201046060222s1000------------r-----000-0-eng-d  aWeg, zoel und grenzen der streptomycintherapie. mit 87 abbildungen und 1 farbtafel  aBerlin, Walter Gruyter, 1953, Viii+287p.Cu Fig.+1f.Pl  aAktuelle Fragen Der Inneren Medizin

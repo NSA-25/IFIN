@@ -1,0 +1,48 @@
+{
+  "IDN": "000056924",
+  "001": "000056924",
+  "002": "20200917",
+  "005": "20200917022932",
+  "008": "200917s1000------------r-----000-0-eng-d",
+  "040": {
+    "a": "IFIN-HH"
+  },
+  "041": {
+    "a": "eng"
+  },
+  "1001": {
+    "L": "000041343",
+    "a": "Tugulea, Laura"
+  },
+  "24510": {
+    "a": "Teaching Physics in Europe: Activities, Outcomes & Recommendations of the STEPS TWO Project.",
+    "c": "Laura Tugulea; Gareth Jones; Jan Naudts (Eds.)"
+  },
+  "260": {
+    "a": "Bucuresti",
+    "b": "Ars Docendi",
+    "c": "2011"
+  },
+  "300": {
+    "a": "131 p."
+  },
+  "500": {
+    "a": "Donatie Acad. Nicolae Victor Zamfir"
+  },
+  "7001": {
+    "L": "000043275",
+    "a": "Naudts, Jan"
+  },
+  "852": {
+    "a": "82818",
+    "c": "NVZ"
+  },
+  "CAT": {
+    "a": "SYS",
+    "c": "20200917",
+    "h": "022932"
+  },
+  "FMT": "BK",
+  "LDR": "-----nam--22------u-4500",
+  "LNG": "eng"
+}

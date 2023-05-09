@@ -1,0 +1,1 @@
+00374nam--2200121-i-45000010010000000020009000100050015000190080041000342450101000752600050001767000016002268520010002420000344052016123020161230201040060222s1000------------r-----000-0-eng-d  aNon-ferrous foundry metallurgy. the science of melting and casting non-ferrous metals and alloys  aLondon, Pergamon Press, 1954, X + 497p.Cu Fig  aMurphy, A.J  a11233

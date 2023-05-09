@@ -1,0 +1,1 @@
+00355nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752600090000964900028001867000019002140000296432016123020161230201037060222s1000------------r-----000-0-eng-d  aMattis, Daniel C  aMathematical Physics In One Dimension.Exactly Soluble Models Of Interacting Particles  aPerspectives In Physics  aLieb, Elliot H

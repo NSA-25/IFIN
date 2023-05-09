@@ -1,0 +1,1 @@
+00366nam--2200121-i-45000010010000000020009000100050015000190080041000341000050000752450066001252600043001918520010002340000368922016123020161230201041060222s1000------------r-----000-0-eng-d  aPoplawski,W.,Weber,Helmut Und Samisch,Herbert  aTechnologie und werkmontage des apparatebaues. ein einfuhrung  aBerlin, Veb Verlag Technik, 1965. 269p  a24754

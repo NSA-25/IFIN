@@ -1,0 +1,1 @@
+00380nam--2200121-i-45000010010000000020009000100050015000190080041000341000049000752450075001242600050001998520009002490000424962016123020161230201043060222s1000------------r-----000-0-eng-d  aSpirin,A.A., Salam-zade,M.M., Vecihaiser,G.V  aIndreptar pentru lucrarile de laborator din tehnica tensiunilor inalte  aBucuresti, Ed.Energetica De Stat, 1954. 155 P  a3791

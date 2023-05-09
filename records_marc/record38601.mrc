@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000341000030000752450086001052600050001918520010002410000183202016123020161230201032060222s1000------------r-----000-0-eng-d  aDodd, R.E., Robinson, P.L  aExperimental inorganic chemistry.a guide to laboratory practice.second impression  aAmsterdam, Elsevier Publ.Co., 1957.Xii + 424p  a14931

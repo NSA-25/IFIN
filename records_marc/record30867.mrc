@@ -1,0 +1,1 @@
+00374nam--2200121-i-45000010010000000020009000100050015000190080041000341000014000752450104000892600049001938520010002420000260682016123020161230201036060222s1000------------r-----000-0-eng-d  aJuster, F  aCours pratique de television. toutes ondes - tous standards. vol.3: la television a longue distance  aParis, Editions Techn.Et Profes., 1954, 223p  a10682

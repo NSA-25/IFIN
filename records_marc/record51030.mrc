@@ -1,0 +1,1 @@
+00374nam--2200109-i-45000010010000000020009000100050015000190080041000342450135000752600042002104900012002520000058902016123020161230201026060222s1000------------r-----000-0-eng-d  aThe design of research laboratories. the report of a study out by the division for arhitectural studies of the nuffield foundation  aLondon, Oxford University Press, 1961  aXx+221p

@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000342450071000752600060001464900029002068520010002350000194182016123020161230201033060222s1000------------r-----000-0-eng-d  aFactors influencing the economical application of food irradiation  aVienna, International Atomic Energy Agency, 1973. 173 P  aPanel Proceedings Series  a38186

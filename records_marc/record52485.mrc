@@ -1,0 +1,1 @@
+00357nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450090000912600045001818520009002260000044342016123020161230201025060222s1000------------r-----000-0-eng-d  aDrabble J.R  aThe effect of strain on the thermoelectric pro perties of a many valley semiconductor  aJournal Of Electronics And Control  1958  a5700

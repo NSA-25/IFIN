@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000341000023000752450101000982600039001998520010002380000163302016123020161230201031060222s1000------------r-----000-0-eng-d  aCoppolani,M.Pierre  aApplication de la photothermometrie a l etude des phenomenes thermiques non stationnaires. these  aParis,Universite,1972. 172 P.+ Fig  a78151

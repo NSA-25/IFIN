@@ -1,0 +1,1 @@
+00380nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450104000922600053001968520009002490000036862016123020161230201025060222s1000------------r-----000-0-eng-d  aCorciovei, A  aCurba de absorbtie magnetica nucleara la un sistem de trei nucleoni formind un triunghi echilateral  aBucuresti, Editura Academiei Rpr, 1957 P.296-309  a4807

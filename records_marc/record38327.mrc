@@ -1,0 +1,1 @@
+00374nam--2200121-i-45000010010000000020009000100050015000190080041000341000039000752450089001142600040002038520009002430000185942016123020161230201032060222s1000------------r-----000-0-eng-d  aEcknach H., Eisleben Hans-heinrich  aI.  eine gesetzmaassige beziehung der ii. quantitative  spektrochemische analyse von  aBerlin, Verlag Technik, 1952.  48 P  a8526

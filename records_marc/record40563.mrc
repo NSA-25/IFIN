@@ -1,0 +1,1 @@
+00361nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450101000932600035001948520010002290000163582016123020161230201031060222s1000------------r-----000-0-eng-d  aChemla,Daniel  aContribution a l etude des propietes dielectri ques des cristaux a structure tetraedrique. these  aParis,Universite,1972. Pag.Dif  a78107

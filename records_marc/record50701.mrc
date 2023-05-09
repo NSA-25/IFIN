@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000342450091000752600035001667000042002018520010002430000062192016123020161230201026060222s1000------------r-----000-0-eng-d  aBallistic missile and aerospace technology vol.3: propulsion, space science and explor  aNew York, Academic Press, 1961  aMorrow, C.T., Elu, L.D.And Smith, M.R  a18525

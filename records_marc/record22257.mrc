@@ -1,0 +1,1 @@
+00350nam--2200109-i-45000010010000000020009000100050015000190080041000342450128000752600027002038520010002300000346792016123020161230201040060222s1000------------r-----000-0-eng-d  aNew mexico bureau of mines & mineral resources. memoir 38:geology and mineral technology of the grants uranium regiion 1979  aNew Mexico, Univ.,1980  a49360

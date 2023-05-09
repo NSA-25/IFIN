@@ -1,0 +1,1 @@
+00365nam--2200121-i-45000010010000000020009000100050015000190080041000341000024000752450092000992600043001914900009002340000052662016123020161230201026060222s1000------------r-----000-0-eng-d  aBraga, Carlos Lloyd  aDeterminacao da espessura de meios materiais p elo metodo de absorcao da radiacao gamma  aLisboa, Instit.Superior Technico, 1960  a15 P

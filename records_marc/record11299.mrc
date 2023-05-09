@@ -1,0 +1,1 @@
+00362nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450108000912600033001998520008002320000456402016123020161230201045060222s1000------------r-----000-0-eng-d  aTurney, T.H  aLe calcul d`heaviside. expose elementaire et applications a l`electrotechnique. trad. ... par l.vellard  aParis, Dunod, 1950, Xii+140p  a428

@@ -1,0 +1,1 @@
+00372nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450119000942600028002138520009002410000495102016123020161230201047060222s1000------------r-----000-0-eng-d  aProcofiev, V.K  aMetode fotografice de analiza spectrala cantitativa a metalelor si aliajelor. trad. din lb. rusa. vol. 2. metodica  aBucuresti, I.D.T., 1951  a3030

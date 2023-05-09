@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000341000031000752450091001062600048001978520010002450000441532016123020161230201044060222s1000------------r-----000-0-eng-d  aPuerschner, K., Auger, R.W  aThe relay guide. a compendium of electromechanical ralys marketed in the united states  aNew York, Reinhold Publ.Corp., 1960, X+383p  a16293

@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000341000014000752450101000892600048001908520008002380000363402016123020161230201040060222s1000------------r-----000-0-eng-d  aPirard, A  aSur un procede photoelastique permettant la determimnation des tensions dans les plans succesifs  aLiege, H.Vaillant-carmanne, S.A., 1949, 11p  a994

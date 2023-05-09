@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000342450111000752600028001864900035002148520010002490000433042016123020161230201044060222s1000------------r-----000-0-eng-d  aS ymbole litteraux int.utilises en electricite. symboles de grandeurs alphabets et caracters. 3-e editiion  aGeneve, Cri, 1953. 15 P  aCommision Electrotechnique Int  a12252

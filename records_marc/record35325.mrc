@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000341000023000752450044000982600103001428520009002450000215972016123020161230201034060222s1000------------r-----000-0-eng-d  aGriffith, Robert F  aSources, supplies and uses of beryllium  aWashington, U.S. Atomic Energy Comm., 1954. /F.P./, 5fig. Reprinted From April 1953 Metal Progress  a6185

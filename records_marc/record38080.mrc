@@ -1,0 +1,1 @@
+00380nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450086000952600067001818520010002480000188412016123020161230201032060222s1000------------r-----000-0-eng-d  aDelmon, Bernard  aL`etude cinetique du processus chimique dans la transformation des solides. these  aGrenoble, La Faculte Des Science De L`Universite, 1965.   85 P  a22798

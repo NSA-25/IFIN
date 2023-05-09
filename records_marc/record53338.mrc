@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000341000015000752450116000902600041002068520009002470000035802016123020161230201025060222s1000------------r-----000-0-eng-d  aBoe, Louis  aDipoles et quadripoles. etude des circuits e lectriques et radioelectriques sous une forme simple et generale..  aParis,  Etienne Chiron , 1949. 147 P  a1696

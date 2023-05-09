@@ -1,0 +1,1 @@
+00372nam--2200121-i-45000010010000000020009000100050015000190080041000341000039000752450091001142600035002058520010002400000234762016123020161230201035060222s1000------------r-----000-0-eng-d  aM.M.Taqui Khan And Artur E.Martell  aHomogeneus catalysis by metal complexes. vol.1 activation of small inorganic molecules  aNew York, Academic Press, 1974  a42539

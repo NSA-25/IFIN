@@ -1,0 +1,1 @@
+00345nam--2200109-i-45000010010000000020009000100050015000190080041000340800017000752600133000928520010002250000264812016123020161230201036060222s1000------------r-----000-0-eng-d  a621.317(094)  aInstructiuni Pt.Verificarea Puntilor De Compensare A Influentei Variatiei Temperaturii Sudurii Reci La Termocupluri. Ed.Oficiala  a42927

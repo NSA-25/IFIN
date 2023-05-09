@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000341000027000752450092001022600053001948520009002470000183122016123020161230201032060222s1000------------r-----000-0-eng-d  aDjatschenko, P.J./S.A.  aVerschleissuntersuchungen mit hilfe radioaktiver isotope.deutsch. redaktion : fleischer  aBerlin, Veb Verlag Technik, 1958. 131 P., 82 Fig  a6805

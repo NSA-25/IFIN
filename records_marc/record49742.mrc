@@ -1,0 +1,1 @@
+00344nam--2200109-i-45000010010000000020009000100050015000190080041000342450120000752600027001954900012002220000071792016123020161230201027060222s1000------------r-----000-0-eng-d  aThe determination of uranium and thorium. handbook of chemical methods for their determination in minerals and ores  aLondon, H.M.S.O., 1963  aVii+43p

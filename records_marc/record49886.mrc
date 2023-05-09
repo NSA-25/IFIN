@@ -1,0 +1,1 @@
+00359nam--2200121-i-45000010010000000020009000100050015000190080041000341000013000752450087000882600045001754900017002200000070352016123020161230201027060222s1000------------r-----000-0-eng-d  aBraun, J  aA parametric study of a constant-mach-number mhd generator with nuclear ionization  aStockholm, Aktiebolaget Atomenergi, 1965  a18 P + 4 Fig

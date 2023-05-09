@@ -1,0 +1,1 @@
+00369nam--2200109-i-45000010010000000020009000100050015000190080041000342450142000752600032002178520010002490000349782016123020161230201040060222s1000------------r-----000-0-eng-d  aNouveau traite de chimie minerale. publie sous la direction de paul pascal. t.4: glucinium, magnesium, calcium, strontium, baryum, radium  aParis, Masson Et C-ie, 1956  a11900

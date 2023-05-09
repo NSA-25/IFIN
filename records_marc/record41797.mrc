@@ -1,0 +1,1 @@
+00340nam--2200109-i-45000010010000000020009000100050015000190080041000342450104000752600041001798520010002200000151242016123020161230201031060222s1000------------r-----000-0-eng-d  aMateriale din polimeri in constructii. materiale plastice,fibre sintetice,lacuri si vopsele,adezivi  aBucuresti,Editura Tehnica,1961. 260p  a76437

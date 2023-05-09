@@ -1,0 +1,1 @@
+00333nam--2200109-i-45000010010000000020009000100050015000190080041000342450091000752600035001667000022002010000025462016123020161230201025060222s1000------------r-----000-0-eng-d  aDevelopment in earth and planetary sciences: vol.3: earthquake forecasting and warning  aTokyo, D.Reidel Publ.Co., 1982  aTsuneji, Rikitake

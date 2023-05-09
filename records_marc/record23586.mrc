@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000342450081000752600040001567000045001968520010002410000333502016123020161230201039060222s1000------------r-----000-0-eng-d  aMonographs and textbookks in material science. vol.5: atlas of binary alloys  aNew York, Marcel Dekker, Inc., 1973  aStaudhammer, Karl P.And Murr, Lawrence E  a76156

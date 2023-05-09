@@ -1,0 +1,1 @@
+00358nam--2200121-i-45000010010000000020009000100050015000190080041000341000014000752450079000892600023001684900045001910000071452016123020161230201027060222s1000------------r-----000-0-eng-d  aBroise, P  aLe langage algol. applications a des problemes de recherche operationnelle  aParis, Dunod, 1965  aMonographies De Recherche Operationnelle

@@ -1,0 +1,1 @@
+00361nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450094000952600041001898520009002300000302742016123020161230201038060222s1000------------r-----000-0-eng-d  aLupu, Alexandru  aContributii in domeniul compusilor macromoleculari folositi in industria fibrelor chimice  aBucuresti, Ed.Acad.R.P.R., 1956, 94p  a4985

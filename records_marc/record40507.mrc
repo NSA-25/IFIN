@@ -1,0 +1,1 @@
+00365nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450103000942600036001978520010002330000164142016123020161230201031060222s1000------------r-----000-0-eng-d  aSeifert,Ulrich  aUntersuchungen zur naturlichen und magneitischen optischen aktivitat absorbieren der media.dissert  aWurzburg,Universitat,1962. 91 P  a78212

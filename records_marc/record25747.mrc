@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000342450114000752600035001897000021002248520010002450000311892016123020161230201038060222s1000------------r-----000-0-eng-d  aMathematics in science and engineering. vol.5: optimization techniques with applications to aerospace systems  aNew York, Academic Press, 1961  aLeitmann, George  a17315

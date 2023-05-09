@@ -1,0 +1,1 @@
+00372nam--2200121-i-45000010010000000020009000100050015000190080041000341000037000752450049001122600045001614900044002060000074322016123020161230201027060222s1000------------r-----000-0-eng-d  aDirr, Bodo Und Kollmann, Eckhard  aLosungen regelungstechnischer ubungsaufgaben  aBraunschweig, Friedr.Vieweg & Sohn, 1963  aRegelungstechnik In Einzeldarstellungen

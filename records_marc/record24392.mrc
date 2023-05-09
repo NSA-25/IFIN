@@ -1,0 +1,1 @@
+00350nam--2200109-i-45000010010000000020009000100050015000190080041000342450115000752600040001908520010002300000325442016123020161230201039060222s1000------------r-----000-0-eng-d  aMitteilungsblatt zu volkswietschaftilchen fragen. series energie. kernenergie-organisationen und einrichtungen  aBerlin, Akademie-verlag, 1962, 247p  a18789

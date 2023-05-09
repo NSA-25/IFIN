@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000022000752450108000972600042002058520010002470000073422016123020161230201027060222s1000------------r-----000-0-eng-d  aChevalier, Michel  aAppareillage electrique des automatismes idust riels.appareils electromagnetiques et electrom ecaniques  aParis, Edotions Eyrolles, 1965. 296 P  a22200

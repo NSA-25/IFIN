@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000341000030000752450089001052600050001948520010002440000186022016123020161230201032060222s1000------------r-----000-0-eng-d  aEnke,C.G., Malmstadt, H.V  aElectronics for scientists. principles and experiments for those who use instruments  aNew York, W.A.Benjamin, Inc,. 1963. Xi + 619p  a19045

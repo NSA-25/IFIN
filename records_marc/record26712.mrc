@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450095000952600049001908520008002390000302242016123020161230201038060222s1000------------r-----000-0-eng-d  aMadelung, Erwin  aDie matematischen hilfsmittel des physikers. dritte auflage. mit 25 textfig. american edit  aNew-york, Dover Publications, 1943 Xiii+384p  a743

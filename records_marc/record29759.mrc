@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450110000942600045002048520010002490000271762016123020161230201036060222s1000------------r-----000-0-eng-d  aKofler, Ludwig  aThermo-mikro-methoden zur kennzeichnung organischer stoffe and stoffgemische. mitarbeit von m.branstatter  aWeinheim, Verlag Chemie, 1954, Xi + 608p  a12396

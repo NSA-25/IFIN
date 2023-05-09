@@ -1,0 +1,1 @@
+00357nam--2200109-i-45000010010000000020009000100050015000190080041000342450111000752600050001868520011002360000308452016123020161230201038060222s1000------------r-----000-0-eng-d  aMaterialismul dialectic si stiintele contemporane ale naturii. indicator bibliografic selectiv (1945-1960)  aBucuresti, Biblioteca Acad.R.P.R., 1963, 301p  aD.1118

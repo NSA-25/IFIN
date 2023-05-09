@@ -1,0 +1,1 @@
+00365nam--2200109-i-45000010010000000020009000100050015000190080041000342450134000752600036002098520010002450000188642016123020161230201032060222s1000------------r-----000-0-eng-d  aQuatrieme congres de calcul et de traitement de l information afiro.publie avec le concurs du c.n.r.s.versailles 21-24 avril 1964  aParis, Dunod, 1965. Vii + 413 P  a23952

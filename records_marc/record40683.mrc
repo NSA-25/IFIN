@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450124000952600031002198520010002500000162382016123020161230201031060222s1000------------r-----000-0-eng-d  aBourgoin,Daniel  aCorrelation entre structures et proprietes rheoptiques de solutions micellairesset macro moleculaires concentrees.these  aParis,Universite,1963. 49p  a77985

@@ -1,0 +1,1 @@
+00361nam--2200121-i-45000010010000000020009000100050015000190080041000342450043000752600034001184900070001527000017002220000100682016123020161230201028060222s1000------------r-----000-0-eng-d  aProblems in the foundations of physics  aBerlin, Springer-verlag, 1967  aStudies In The Foundations Methodology And Phi Losophy Of Science  aBunge, Mario

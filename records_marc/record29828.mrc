@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000340800014000752450116000892600044002058520010002490000271072016123020161230201036060222s1000------------r-----000-0-eng-d  a5(09:498)  aIstoria gindirii si creatiei stiintifice si tehnice romanesti.din antichitate pina la formarea stiintei moderne  aBucuresti,Editura Academiei, 1982. 392p  a75688

@@ -1,0 +1,1 @@
+00364nam--2200121-i-45000010010000000020009000100050015000190080041000342450102000752600033001777000022002108520010002320000259032016123020161230201036060222s1000------------r-----000-0-eng-d  aInternational series of monographs on analytical chemistry. vol.13. controlled-potential analysis  aLondon, Pergamon Press, 1961  aGarry A. Rechnitz  a16056

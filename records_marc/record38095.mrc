@@ -1,0 +1,1 @@
+00372nam--2200121-i-45000010010000000020009000100050015000190080041000341000048000752450071001232600046001948520010002400000188262016123020161230201032060222s1000------------r-----000-0-eng-d  aFox, Russell., Garbuny, Max., Hooke, Robert  aThe science of science. methods of interpreting physical phenomena  aNew York, Walker And Co., 1963.Xi + 243 P  a22416

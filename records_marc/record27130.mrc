@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000038000752450081001132600053001948520010002470000298062016123020161230201037060222s1000------------r-----000-0-eng-d  aLovett, D.R.And Ballentyne, D.W.G  aA dictionary of named effects and laws in chemistry, physics and mathematics  aLondon, Chapman And Hall Ltd., 1970, Viii + 335p  aD.168

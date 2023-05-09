@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000342450089000752600056001644900027002208520009002470000182562016123020161230201032060222s1000------------r-----000-0-eng-d  aElektronenmikroskopische untersuchung der gleitlinienbildung auf kupfereinkristallen  aWurzburg, Druck Der Universitatdruckerei, 1957 30 P  aZeitschrift Fur Physik  a6230

@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000340200010000752450080000852600028001654900064001930000074972016123020161230201027060222s1000------------r-----000-0-eng-d  a724 P  a1965 book of astm standards. with related mate rial. part 31. metallography  aNondestructive T Esting  aPhiladelphia, American Soc.For Testing And Mat Erials, 1965

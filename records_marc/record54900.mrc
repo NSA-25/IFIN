@@ -1,0 +1,1 @@
+00362nam--2200121-i-45000010010000000020009000100050015000190080041000341000029000752450084001042600043001888520009002310000020162016123020161230201024060222s1000------------r-----000-0-eng-d  aFrancombe, M.H., Lewis B  aStructural, dielectric and optical properties of ferrielectric lead metaniobate  aReprinted From  Acta Crystallographica  a5696

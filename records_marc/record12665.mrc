@@ -1,0 +1,1 @@
+00360nam--2200109-i-45000010010000000020009000100050015000190080041000342450119000752600046001948520010002400000442742016123020161230201044060222s1000------------r-----000-0-eng-d  aLa theorie quantique des champs. douzieme conseil de physique tenu a l`univ.libre de bruxelles du 9 au 14 oct.1961  aNe York, Interscience Publ., /1962/, 261p  a19221

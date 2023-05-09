@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450111000922600047002038520009002500000041652016123020161230201025060222s1000------------r-----000-0-eng-d  aAbraham, Max  aThe classical theory of electricity and magne tism. revised by richard becker. translation by john dougall  aNew York, Hafner Publ. Co., 1932 Xiv+285 P  a2231

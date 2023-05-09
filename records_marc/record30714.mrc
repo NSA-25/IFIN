@@ -1,0 +1,1 @@
+00364nam--2200121-i-45000010010000000020009000100050015000190080041000342450107000752600033001827000017002158520010002320000262212016123020161230201036060222s1000------------r-----000-0-eng-d  aInternational series of monographs in natural phylosophy. vol. 27. introduction to quantum electronics  aOxford, Pergamon Press, 1970  aHaar, D. Ter  a34338

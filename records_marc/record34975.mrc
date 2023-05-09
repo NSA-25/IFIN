@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000342450090000752600031001657000051001968520010002470000219472016123020161230201034060222s1000------------r-----000-0-eng-d  aHandbook of automation, computation and control. vol.ii:computers and data processing  aNew York, John Wiley, 1958  aEugene M.Grabbe, Simon Ramo, Dean E.Wooldridge  a15071

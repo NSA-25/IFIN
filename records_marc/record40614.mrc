@@ -1,0 +1,1 @@
+00374nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450111000952600036002068520010002420000163072016123020161230201031060222s1000------------r-----000-0-eng-d  aDutheil,Camille  aEtude et mise au point d une methode de mesure des chaleurs specifiques au microcalorimatre e.calvat.these  aMarseille,Universite,1961. 40 P  a78102

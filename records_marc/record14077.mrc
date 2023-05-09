@@ -1,0 +1,1 @@
+00366nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450098000922600044001908520010002340000428612016123020161230201043060222s1000------------r-----000-0-eng-d  aStephens,G.L  aRadio interference suppressiion. as applied to radio and television reception. second edition  aLondon, Iliffe & Sons, Ltd.,1952. 132 P  a14992

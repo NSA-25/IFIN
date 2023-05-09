@@ -1,0 +1,1 @@
+00367nam--2200109-i-45000010010000000020009000100050015000190080041000342450100000752600073001758520009002480000066152016123020161230201026060222s1000------------r-----000-0-eng-d  aBericht uber die ii. internationale pulvermeta llurgische tagung in eisenach vom 1-3 juni, 1961  aBerlin, Akademie-verlag, 1962 Xxviii + 566 P.+ 595 Fig. + 105 Tabele  a9362

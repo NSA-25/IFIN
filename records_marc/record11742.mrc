@@ -1,0 +1,1 @@
+00360nam--2200109-i-45000010010000000020009000100050015000190080041000342450129000752600036002048520010002400000451972016123020161230201044060222s1000------------r-----000-0-eng-d  aTransactions of symposia in applied mathematics. vol.ii: computing, mechanics, statistics and partial differential equations  aNew York, Interscience, 1953-54  a12190

@@ -1,0 +1,1 @@
+00360nam--2200121-i-45000010010000000020009000100050015000190080041000342450041000752600055001164900045001717000022002160000033822016123020161230201025060222s1000------------r-----000-0-eng-d  aLouis de broglie und die philosophie  a/Dresden, Wiss.Zeitschr.Der Technische Schule 1954  aWiss Zeitschr.Der Technischen Hochschule  aBroglie, Louis De

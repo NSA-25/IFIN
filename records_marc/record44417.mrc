@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000342450071000752600070001467000025002168520010002410000125042016123020161230201029060222s1000------------r-----000-0-eng-d  aBenchmark papers in organic chemistry. vol.6:stereosele reductions  aStroudsburg, Dowden, Hutchinson & Ross, Inc., 1976. Xviii + 419 P  aCalvin, A.Vanderwerf  a45634

@@ -1,0 +1,1 @@
+00380nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450094000942600060001888520010002480000471212016123020161230201046060222s1000------------r-----000-0-eng-d  aWhipple,Omer K  aChemical properties and identification of ions. an intr.to semimicro qualitative analysis  aSan Francisco, Wadsworth Publ.Co.Inc.,1961. Vii + 310 P  a19650

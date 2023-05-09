@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000341000035000752450081001102600049001918520009002400000269642016123020161230201036060222s1000------------r-----000-0-eng-d  aKolthoff, I.M. And J.J.Lingane  aPolarography. polarographic analysis and voltametry. amperometric titrations  aNew York, Interscience Publ.,1964. Ix + 510p  a4250

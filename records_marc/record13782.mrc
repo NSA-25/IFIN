@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000342450079000752600051001544900046002058520009002510000431572016123020161230201043060222s1000------------r-----000-0-eng-d  aSupraconductibilitatea. traduceri din literatura sovietica de specialitate  aBucuresti, Inst.De Studii Rom.Sov.,1959. 485 P  aBiblioteca Analelor Rom-sov.Seria Tehnica  a6853

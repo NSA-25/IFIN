@@ -1,0 +1,1 @@
+00380nam--2200121-i-45000010010000000020009000100050015000190080041000342450108000752600044001837000021002278520010002480000344012016123020161230201040060222s1000------------r-----000-0-eng-d  aSymposium on radiobiology.the basic aspects of radiation effects on living systems.oberlin college 1950  aNew York, Wiley, 1952. Xii+465p. Cu Fig  aNickson, James J  a10843

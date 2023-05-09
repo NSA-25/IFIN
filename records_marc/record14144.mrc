@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450094000962600049001908520010002390000427942016123020161230201043060222s1000------------r-----000-0-eng-d  aStegmeier Herbet  aDas keimwachstum als modell fur die ummagnetisierung von schalt-und speicher-ferritkernen  aStuttgart, Technische Hochschule, 1962. 90 P  a17757

@@ -1,0 +1,1 @@
+00365nam--2200109-i-45000010010000000020009000100050015000190080041000342450099000752600071001748520010002450000353822016123020161230201040060222s1000------------r-----000-0-eng-d  aOil, gas and petrochemistry in the rumanian people`s republic. studies and articles, june 1963  aBucharest, Ministry Of The Oil And Chemical Industries, 1963, 123p  a23799

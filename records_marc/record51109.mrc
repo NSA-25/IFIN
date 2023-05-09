@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000341000028000752450104001032600042002078520010002490000058112016123020161230201026060222s1000------------r-----000-0-eng-d  aBellicard J., Barreau P  aEtude des nuveaux de vibration des isotopes du fer par diffusion inelastique d electrons de 150 mev  a/Saclay, C.E.N., 1962/. 18 P. + 9 Fig  a17216

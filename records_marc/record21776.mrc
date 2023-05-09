@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000340800018000752450110000932600046002038520010002490000351602016123020161230201040060222s1000------------r-----000-0-eng-d  a547.07(082.1)  aOrganic syntheses. an annual publication of satisfactory methods for the preparation of organic chemicals  aNew York, John Wiley And Sons, Inc., 1950  a14530

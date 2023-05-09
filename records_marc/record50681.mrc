@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000342450100000752600050001757000021002258520010002460000062392016123020161230201026060222s1000------------r-----000-0-eng-d  aMathematical methods in the social scientces, 1959. proceedings of the 1st stanford sympo- sium  aStanford, University Press, 1960 Viii + 365 P  aArrow, Kenneth J  a18596

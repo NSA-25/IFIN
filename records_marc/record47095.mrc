@@ -1,0 +1,1 @@
+00356nam--2200121-i-45000010010000000020009000100050015000190080041000341000030000752450048001052600039001534900042001920000098262016123020161230201028060222s1000------------r-----000-0-eng-d  aBaldas, J.And Porter, Q.N  aMass spectrometry of heterocyclic compounds  aNew York, Wiley Interscience, 1971  aGeneral Heterocyclic Chemistry Series

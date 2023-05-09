@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450115000932600035002088520010002430000164072016123020161230201031060222s1000------------r-----000-0-eng-d  aDegeilh,Andre  aEtudes experimentale et theorique des sources d ions positife a excitation electrique de haute frequence.these  aToulouse,Universite,1962. 127p  a78205

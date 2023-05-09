@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000341000063000752450048001382600055001868520010002410000088002016123020161230201027060222s1000------------r-----000-0-eng-d  aBearnson, Leroy W., Sellers, Frederich F.And Hsiao, Mu-yue  aError detecting logic for digital computers  aNew York, Mcgraw-hill Book Co., 1968 Xviii + 295 P  a30420

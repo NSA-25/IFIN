@@ -1,0 +1,1 @@
+00366nam--2200121-i-45000010010000000020009000100050015000190080041000342450096000752600040001717000023002118520010002340000333442016123020161230201039060222s1000------------r-----000-0-eng-d  aMonografii matematice: nr.43: sinergetica, solitoni, fractali, haos determinist, turbulenta  aTimisoara, Univ.Din Timisoara, 1992  aGeorgescu, Adelina  a74616

@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450102000962600051001988520010002490000019042016123020161230201024060222s1000------------r-----000-0-eng-d  aGoetzel, Claus G  aLa metallurgie des poudres.principes,progres recents de la technologie, materiaux et applications  aSaclay, Centre D Etudes Nucleaires, 1962. 99 P  a18339

@@ -1,0 +1,1 @@
+00362nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450110000952600025002058520010002300000416252016123020161230201043060222s1000------------r-----000-0-eng-d  aSimane ,Cestmir  aAccelerators of ions and electrons. principles and basic calculations of linear and circular accelerators  aPrague, Artia. 191 P  a15639

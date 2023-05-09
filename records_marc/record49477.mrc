@@ -1,0 +1,1 @@
+00355nam--2200121-i-45000010010000000020009000100050015000190080041000341000042000752450060001172600041001774900015002180000074442016123020161230201027060222s1000------------r-----000-0-eng-d  aBurford, William B.And Verner, Grey H  aSemiconductor junctions and devices. theory to practice  aNew York, Mcgraw-hill Book Co., 1965  aXx + 328 P

@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000341000015000752450095000902600061001858520010002460000185932016123020161230201032060222s1000------------r-----000-0-eng-d  aEmery, A.H  aI.diffusion in polymer solutions under pressure. ii.thermal diffusion in polymer solutions  aAnn Arbor, University Microfilms, Inc., 1955. Xi + 214 P  a17930

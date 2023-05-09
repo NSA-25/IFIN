@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450095000912600058001868520009002440000465832016123020161230201046060222s1000------------r-----000-0-eng-d  aVernier, Ph  aDetermination de la charge d`eau necessaire pour etalonner un debitmetre a orifice calibre  a/Grenoble, Centre D`Etudes Nucleaires/, 1959, 5p.+1pl  a7145

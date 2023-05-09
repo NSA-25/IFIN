@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000342450053000752600030001284900088001588520010002460000017142016123020161230201024060222s1000------------r-----000-0-eng-d  aLa politique scientifique et les etats europeens  aParis, Unesco, 1971, 1972  aEtudes Et Documents De Politique Scientifique. Science Policy Studies And Documents  a21290

@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000341000029000752450089001042600046001938520009002390000406832016123020161230201042060222s1000------------r-----000-0-eng-d  aSchicke, W., Utermark, W  aSchmelzpunkttabellen organischer verbindungen. 2.neubearbeitete und erganzte auflage  aBerlin, Akademie-verlag, 1963, Xiv + 715p  a9029

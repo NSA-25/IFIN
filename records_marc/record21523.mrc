@@ -1,0 +1,1 @@
+00343nam--2200109-i-45000010010000000020009000100050015000190080041000342450092000752600056001678520010002230000354132016123020161230201040060222s1000------------r-----000-0-eng-d  aFourth national symposium on reliability and quality control in electronics.proceedings  aWashington, Amer.Soc. For Quality Contr. 1958. 354p  a15895

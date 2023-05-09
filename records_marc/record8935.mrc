@@ -1,0 +1,1 @@
+00366nam--2200121-i-45000010010000000020009000100050015000190080041000342450109000752600033001847000017002178520010002340000480042016123020161230201046060222s1000------------r-----000-0-eng-d  aSolubility data series. vol.3: silver azide, cyanide, cyanamides, cyanate, selenocyanate and thiocyanate  aOxford, Pergamon Press, 1979  aKertes, A. S  a47014

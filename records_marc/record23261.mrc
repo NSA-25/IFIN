@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000340800012000752450109000872600054001968520010002500000336752016123020161230201039060222s1000------------r-----000-0-eng-d  a621.385  aMullard technical handbook. book 2: valves and tubes. part. 4: transmitting and industrial heating tubes  aLondon, Central Technical Services, 1971, Pag.Dif  a35559

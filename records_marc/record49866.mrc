@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000027000752450095001022600050001978520010002470000070552016123020161230201027060222s1000------------r-----000-0-eng-d  aAgeron, Paul, Reis, Th  aTechnologie des reacteurs nucleaires. reacteurs nucleaires a uranium naturel et eau lourde  aParis, Gauthier-villars, 1959-1964. Xiv+435 P  a14573

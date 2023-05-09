@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000028000752450098001032600047002018520009002480000041602016123020161230201025060222s1000------------r-----000-0-eng-d  aVecker, R., Sixtus, K.J  aProbleme der technischen magnetisierungskurve. vortrage gehalten in gottingen im oktober 1937  aBerlin,  Iulius Springer , 1938 Iii +172 P  a1541

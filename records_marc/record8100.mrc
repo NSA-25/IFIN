@@ -1,0 +1,1 @@
+00374nam--2200109-i-45000010010000000020009000100050015000190080041000342450113000752600066001888520010002540000488402016123020161230201047060222s1000------------r-----000-0-eng-d  aThe radio amateur`s handbook, by the headquarters staff of the american radio relay league ... 34-th edition  aConcorde, New Hampshire, The Rumford Press, 1957, 136p.+/13p.  a12958

@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000012000752450103000872600057001908520010002470000395742016123020161230201042060222s1000------------r-----000-0-eng-d  aRose, J  aAdvanced physico-chemical experiments. a textbook of practical physical chemistry and calculations  aLondon, Isaac Putman & Sons Ltd., 1964, Xviii + 414p  a22037

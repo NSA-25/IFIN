@@ -1,0 +1,1 @@
+00367nam--2200109-i-45000010010000000020009000100050015000190080041000342450139000752600034002148520009002480000494442016123020161230201047060222s1000------------r-----000-0-eng-d  aProcesele de matritare si parametrii lor tehnologice. culegere de lucrari ale inst. de mecanica auto din moscova. traducere din l.rusa  aBucuresti, I.D.T., 1960, 178p  a7027

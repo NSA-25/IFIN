@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000341000024000752450092000992600047001918520010002380000474092016123020161230201046060222s1000------------r-----000-0-eng-d  aWestphal, Wilhelm H  aKleines lehrbuch der physik, ohne anwendung hoherer mathematik. 2-te verbesserteauflage  aBerlin, Springer Verlag, 1953, Viii + 263p  a10035

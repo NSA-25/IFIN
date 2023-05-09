@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450102000962600049001988520010002470000474332016123020161230201046060222s1000------------r-----000-0-eng-d  aWilkens, Manfred  aRontgenographische untersuchungen an uberstrukturphasen in den systemen (cu-au-zn) und (au-zn-ga)  aStuttgart, Technischen Hochschule, 1957, 22p  a14153

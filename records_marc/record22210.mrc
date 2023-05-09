@@ -1,0 +1,1 @@
+00344nam--2200109-i-45000010010000000020009000100050015000190080041000342450099000752600050001748520010002240000347262016123020161230201040060222s1000------------r-----000-0-eng-d  aNbs special publication:precision measurement and calibration electricity.ed. by:a.o.mccoubrey  aGaitersburg, U.S.Department Of Commerce, 1985  a80076

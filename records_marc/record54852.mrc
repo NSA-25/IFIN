@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000341000029000752450073001042600063001778520009002400000020642016123020161230201024060222s1000------------r-----000-0-eng-d  aFraenckel(Dr.Ing.Alfred)  aTheorie der wechselstrome.dritte, erweiterte und verbesserte auflage  aBerlin, Verlag Von Jiulius Springer, Vi + 260p + 1 F. 1930  a1698

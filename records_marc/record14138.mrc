@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000341000041000752450054001162600065001708520010002350000428002016123020161230201043060222s1000------------r-----000-0-eng-d  aSteigelmann,W.H., Zudans,Z., Yen,T.C  aThermal stress techniques in the nuclear industry  aNew York, American Elsevier Publ.Co.,Inc.,1965. Xxii + 583 P  a22112

@@ -1,0 +1,1 @@
+00366nam--2200121-i-45000010010000000020009000100050015000190080041000342450047000752600024001224900088001468520010002340000016312016123020161230201024060222s1000------------r-----000-0-eng-d  aLa politica cientifica en amarica latina-2  aParis, Unesco, 1971  aEtudes Et Documents De Politique Scientifique. Science Policy Studies And Documents  a21290

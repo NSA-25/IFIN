@@ -1,0 +1,1 @@
+00365nam--2200121-i-45000010010000000020009000100050015000190080041000342450112000752600028001877000018002158520010002330000437382016123020161230201044060222s1000------------r-----000-0-eng-d  aStruktur und eigenschaften der materie in einzeldastellungen: vol.24: quantentheorie der ionenrealkristalle  aBerlin, Springer-verlag  aStumpf,Harald  a16831

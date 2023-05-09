@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000341000034000752450077001092600053001868520010002390000125982016123020161230201029060222s1000------------r-----000-0-eng-d  aAntoni Mazurkiewicz, Z.Pawlak  aBanach center publications. mathematical foundations of computer science  aWarszawa, Pvn-polish Scientific Publishers, 1976  a43789

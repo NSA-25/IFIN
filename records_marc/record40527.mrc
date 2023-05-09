@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450120000952600032002158520010002470000163942016123020161230201031060222s1000------------r-----000-0-eng-d  aBrefort,Jacques  aEvolution a puissance constante de la temperature d un four en fonction du temps et de la position du capteur.these  aParis,Universite,1960. 66 P  a78255

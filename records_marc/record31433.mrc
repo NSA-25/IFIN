@@ -1,0 +1,1 @@
+00362nam--2200109-i-45000010010000000020009000100050015000190080041000342450118000752600049001938520010002420000255022016123020161230201036060222s1000------------r-----000-0-eng-d  aJournees internationales de calcul analogique - international analogy computation meeting. bruxelles, 1955. actes  aBruxelles, Org.Commitee, 1956, Xxviii + 534p  a12210

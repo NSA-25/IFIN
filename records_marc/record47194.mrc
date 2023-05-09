@@ -1,0 +1,1 @@
+00374nam--2200121-i-45000010010000000020009000100050015000190080041000340800012000752450134000872600021002218520010002420000097272016123020161230201028060222s1000------------r-----000-0-eng-d  a002:658  aBazele informarii documentare tehnico-stiintif ice vol.ii: metode de inmagazinare si regasire a informatiilor tehnico-stiintifice  aBucuresti, I.D.T  a34992

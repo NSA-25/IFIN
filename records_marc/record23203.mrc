@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450106000952600043002018520010002440000337332016123020161230201039060222s1000------------r-----000-0-eng-d  aNeidhart, Peter  aInformationstheorie und automatische informationsverarbeitung. 2.uberarbeitete und erweiterte auflage  aBerlin, Veb Verlag Technik, 1964. 268p  a20651

@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450103000962600049001998520009002480000216142016123020161230201034060222s1000------------r-----000-0-eng-d  aGruninger, Heinz  aMessung von energieverlusten beim durchgang schneller elektronen durch gas-und festkorperschichten  aStuttgart, Technischen Hochschule, 1957. 61p  a5779

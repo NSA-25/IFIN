@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000341000036000752450067001112600057001788520010002350000343832016123020161230201040060222s1000------------r-----000-0-eng-d  aNicholls, J.P., Kushneriuk, S.A  aCalculated thermal neutron flux spectra inside a water annulus  aChalk River, Atomic Energy Of Canada Ltd., 1969. 65p  a11497

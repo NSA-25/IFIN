@@ -1,0 +1,1 @@
+00374nam--2200121-i-45000010010000000020009000100050015000190080041000341000013000752450105000882600050001938520009002430000213472016123020161230201034060222s1000------------r-----000-0-eng-d  aJanet, P  aLecons d`electrotechnique generale professees a l`ecole suprieure d`electricite. deuxieme edition ..  aParis, Gauthier-villars, 1904-1905, Ix + 369p  a1080

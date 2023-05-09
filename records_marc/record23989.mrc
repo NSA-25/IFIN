@@ -1,0 +1,1 @@
+00366nam--2200121-i-45000010010000000020009000100050015000190080041000341000039000752450062001142600059001768520009002350000329472016123020161230201039060222s1000------------r-----000-0-eng-d  aMarinescu N., Barbu E., Mateescu A  aAlimentarea electrica a echipamentelor de telecomunicatii  aBucuresti, Editura Didactica Si Pedagogica, 1963, 355p  a9350

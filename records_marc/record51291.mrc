@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000341000027000752450081001022600062001838520010002450000056292016123020161230201026060222s1000------------r-----000-0-eng-d  aBagley,K.Q.,Oliver D.S  aThe oxydation of uranium in air a review of pr ogress to 27th february, 1953  aCulcheth, Metallurgical Laboratories, 1953. 12 P + Figuri  a16585

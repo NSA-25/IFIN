@@ -1,0 +1,1 @@
+00363nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450085000912600055001768520010002310000272362016123020161230201036060222s1000------------r-----000-0-eng-d  aKroger, F.A  aThe chemistry of imperfect crystals.imperfection chemistry of crystalline solids  aAmsterdam, North-holland Publishing Company, 1974-  a70142

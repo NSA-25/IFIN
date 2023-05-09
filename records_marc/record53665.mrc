@@ -1,0 +1,1 @@
+00358nam--2200121-i-45000010010000000020009000100050015000190080041000342450099000752600032001744900011002067000019002170000032532016123020161230201025060222s1000------------r-----000-0-eng-d  aStatistical methods in research and production with special reference to the chemical industry  aLondon, Oliver & Boyd, 1957  aX+396p  aDavies, Owen L

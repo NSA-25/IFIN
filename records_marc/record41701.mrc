@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000342450018000752600073000934900056001667000035002220000152202016123020161230201031060222s1000------------r-----000-0-eng-d  aB.b.a.library  aStructure And Function Of Energ Y-transducing Membranes. Proceedings  aAmsterdam, Elsevier Scientific Publishing Co., 1977  aDam, K.Van And Gelder, B.F.Van

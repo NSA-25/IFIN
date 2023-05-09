@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000342450081000752600057001567000032002138520010002450000447902016123020161230201044060222s1000------------r-----000-0-eng-d  aThe technology of nuclear reactor safety: vol.1. reactor physics and control  aCambridge, Mass., The M.I.T. Press, 1964, Xii + 743p  aThompson,T.J.,Beckerley,J.G  a21653

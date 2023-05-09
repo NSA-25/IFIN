@@ -1,0 +1,1 @@
+00354nam--2200109-i-45000010010000000020009000100050015000190080041000342450100000752600058001758520011002330000483462016123020161230201046060222s1000------------r-----000-0-eng-d  aZeitschrift und periodica der bibliothek ds hahn-meitner-inst.fur kernforschung. stand 1.4.1963  aBerlin, Hahn-meitner-inst.F.Kernforschung, 1963. 19 P  aD.1102

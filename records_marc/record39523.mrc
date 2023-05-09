@@ -1,0 +1,1 @@
+00379nam--2200133-i-45000010010000000020009000100050015000190080041000341000023000752450024000982600064001224900048001868520011002340000173982016123020161230201032060222s1000------------r-----000-0-eng-d  aGiaquinta, Mariano  aHildebrandt, stefan  aCalculus Of Variations: Vol. Ii : The Hamiltonian Formalism  aGrundlehren Der Mathematischen Wissenschaft  a517.97

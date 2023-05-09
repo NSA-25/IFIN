@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450099000932600047001928520010002390000272492016123020161230201036060222s1000------------r-----000-0-eng-d  aKrabbe, Ulrik  aThe traductor amplifier. its manner of action and comments on its use for automatic regulation  aOrebro, Lindhska Boktryckeriet, 1947, 176p  a10166

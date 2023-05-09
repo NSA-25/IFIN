@@ -1,0 +1,1 @@
+00356nam--2200121-i-45000010010000000020009000100050015000190080041000341000042000752450064001172600040001814900013002210000057902016123020161230201026060222s1000------------r-----000-0-eng-d  aCraft, C.J., Kibbee, J.M.And Nanus, B  aManagement games. a new technique for executive development  aNew York, Reinhold Publ.Corp., 1961  aXii+347p

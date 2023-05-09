@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000342450118000752600036001937000017002298520010002460000411222016123020161230201043060222s1000------------r-----000-0-eng-d  aSemiconductor electronics education committes books. vol.7:handbook of basic transistor circuits and measurements  aNew York, John Wiley & Sons Inc  aR.D.Thornton  a22084

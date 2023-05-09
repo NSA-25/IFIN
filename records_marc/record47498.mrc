@@ -1,0 +1,1 @@
+00360nam--2200109-i-45000010010000000020009000100050015000190080041000342450104000752600061001798520010002400000094232016123020161230201028060222s1000------------r-----000-0-eng-d  aComunicarea in stiinta si tehnica.problema nationala urgenta si recomandari pentru soluti onarea ei  aBucuresti, Institutul De Documentare Tehnica, 1970 318 P  a33638

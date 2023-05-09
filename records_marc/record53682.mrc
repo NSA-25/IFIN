@@ -1,0 +1,1 @@
+00363nam--2200109-i-45000010010000000020009000100050015000190080041000342450126000752600042002018520010002430000032362016123020161230201025060222s1000------------r-----000-0-eng-d  aAisgewahlte kapital aus der vakuumtechnik zum verlust anorganisch nichtfluchtiger substanzen wahrend der gefriertrocknung  aKoln, Westdeutscher Verlag, 1955 39 P  a12936

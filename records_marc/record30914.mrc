@@ -1,0 +1,1 @@
+00350nam--2200109-i-45000010010000000020009000100050015000190080041000342450125000752600030002008520010002300000260212016123020161230201036060222s1000------------r-----000-0-eng-d  aInstructiuni 189-64 pentru calibrarea rezervoarelor metalice folosite la depozitarrea si masurarea produselor petroliere  aBucuresti, Esip, 1965 65p  a21640

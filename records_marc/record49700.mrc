@@ -1,0 +1,1 @@
+00365nam--2200121-i-45000010010000000020009000100050015000190080041000341000043000752450083001182600032002018520010002330000072212016123020161230201027060222s1000------------r-----000-0-eng-d  aDecaulne, P., Gille, J.C., Pelegrin, M  aLehrgang der regelunstechnik. entwurf von regelkreisen. aufgaben und losunge n  aMunchen, R.Oldenbourg, 1963  a21763

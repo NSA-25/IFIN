@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450095000952600047001908520009002370000416512016123020161230201043060222s1000------------r-----000-0-eng-d  aSiomes Santos H  aEscolha electronica de minerios radioactivos. (estudo previo de tres minerios portugueses)  aLisboa, Inst.Superior Technico, 1961. 24 P  a7632

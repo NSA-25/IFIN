@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000341000023000752450088000982600059001868520010002450000388842016123020161230201042060222s1000------------r-----000-0-eng-d  aResnick, Bernard T  aTechnical considerations in the development of a maritime gas-cooled reactor system  aNew York,, Amer.Soc.Of Mechanical Engineers, 1962, 10p  a16624

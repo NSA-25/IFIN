@@ -1,0 +1,1 @@
+00370nam--2200109-i-45000010010000000020009000100050015000190080041000342450139000752600036002148520010002500000301192016123020161230201038060222s1000------------r-----000-0-eng-d  aLucrarile simpozionului de metrologie bucuresti inmb 1951-1981. vol.1: metrologie generala. teoria masurarii. fiabilitatea metrologica  aBucuresti, C.N.S.T., 1981, 223p  a74073

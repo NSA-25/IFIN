@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450103000932600045001968520010002410000162172016123020161230201031060222s1000------------r-----000-0-eng-d  aMartin,Alix L  aEtude des effets thermiques de teinture des fibres cellulosiques par les colorants reactif s.these  aMarseille,Faculte Des Sciences,1961. 7op  a77961

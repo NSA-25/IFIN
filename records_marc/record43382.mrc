@@ -1,0 +1,1 @@
+00365nam--2200121-i-45000010010000000020009000100050015000190080041000342450098000752600043001737000017002168520010002330000135392016123020161230201030060222s1000------------r-----000-0-eng-d  aDevelopments in solid earth geophysics vol.8: introduction to digital filtering in geophysics  aAmsterdam, Elsevier Sci.Publ.Co., 1976  aKuljnek, Ota  a45436

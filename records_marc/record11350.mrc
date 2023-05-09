@@ -1,0 +1,1 @@
+00372nam--2200121-i-45000010010000000020009000100050015000190080041000342450089000752600033001644900044001978520009002410000455892016123020161230201045060222s1000------------r-----000-0-eng-d  aTurnarea in pozitie verticala a pieselor de otel. experienta brigazilor de turnatori  aBucuresti, I.D.T., 1961, 21p  aDin Experienta Fruntasilor In Productie  a1940

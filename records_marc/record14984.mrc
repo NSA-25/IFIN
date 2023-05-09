@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450077000922600072001698520010002410000419532016123020161230201043060222s1000------------r-----000-0-eng-d  aSmith,Carl E  aCommunication circuit fundamentals for radio and communication engineers  aNew York, Toronto,London,Mcgraw-hill Book Comp.Inc.,1942. X + 401 P  a718 P

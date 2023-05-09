@@ -1,0 +1,1 @@
+00365nam--2200121-i-45000010010000000020009000100050015000190080041000341000014000752450095000892600049001848520010002330000060292016123020161230201026060222s1000------------r-----000-0-eng-d  aBuck Otto  aVerformung und elektrischer widerstand von kup fer-einkristallen bei tiefsten temperaturen  aStuttgart, Technische Hochschule, 1961. 23 P  a17759

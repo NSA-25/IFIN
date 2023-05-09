@@ -1,0 +1,49 @@
+{
+  "IDN": "000051463",
+  "001": "000051463",
+  "002": "20161230",
+  "005": "20161230201049",
+  "008": "080717s1000------------r-----000-0-eng-d",
+  "040": {
+    "a": "IFIN-HH"
+  },
+  "1001": {
+    "L": "000029042",
+    "a": "Grauert, Hans; Lieb, Ingo"
+  },
+  "24510": {
+    "a": "Differential-und Intergalrechnung III Integrationstheorie. Kurven- and Flachenintegrale"
+  },
+  "260": {
+    "a": "Berlin",
+    "b": "Springer Verlag",
+    "c": "1968"
+  },
+  "300": {
+    "a": "177 p."
+  },
+  "490": {
+    "a": "Heidelberger Taschenbucher",
+    "v": "Band 43"
+  },
+  "7001": {
+    "L": "000029043",
+    "a": "Hans Grauert"
+  },
+  "700": {
+    "L": "000041696",
+    "a": "Ingo Lieb"
+  },
+  "852": {
+    "a": "30082",
+    "c": "517.2/3"
+  },
+  "CAT": {
+    "a": "Sys",
+    "c": "20080717",
+    "h": "124028"
+  },
+  "FMT": "BK",
+  "LDR": "-----nam--22------u-4500",
+  "LNG": "eng"
+}

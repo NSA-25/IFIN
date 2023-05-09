@@ -1,0 +1,1 @@
+00339nam--2200109-i-45000010010000000020009000100050015000190080041000342450110000752600034001858520010002190000271182016123020161230201036060222s1000------------r-----000-0-eng-d  aIntroducere in informarea si documentarea tehnico-stiintifica. elemente de documentare si biblioteconomie  aBucuresti, I.D.T., 1970, 283p  a33697

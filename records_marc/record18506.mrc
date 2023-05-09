@@ -1,0 +1,1 @@
+00378nam--2200109-i-45000010010000000020009000100050015000190080041000342450114000752600070001898520009002590000384302016123020161230201041060222s1000------------r-----000-0-eng-d  aRecommeded practice for electric installations on shipboord. prepared by the comitee on marine transportation  aNew York, The American Inst.Of Electrical Engineers, K1950. 151 P  a1013

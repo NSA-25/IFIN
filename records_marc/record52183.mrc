@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000341000044000752450061001192600064001808520010002440000047372016123020161230201026060222s1000------------r-----000-0-eng-d  aDecaulne, P., Gille J.C., Pelegrin, M.J  aFeedbach control systems. analysis, synthesis and design  aNew York, Mcgraw-hill Book Co., 1959. Xx + 793 P. Cu Figuri  a14561

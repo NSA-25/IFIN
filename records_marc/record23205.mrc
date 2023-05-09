@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450100000912600048001918520010002390000337312016123020161230201039060222s1000------------r-----000-0-eng-d  aNeiman, M.S  aUltrahochfrequenz-generatoren mit trioden und tetroden. ubersetzung und erganzung von neidhardt  aBerlin, Veb Verlag Technik, 1956. 420p.+fig  a11676

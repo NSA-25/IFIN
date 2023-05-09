@@ -1,0 +1,1 @@
+00365nam--2200121-i-45000010010000000020009000100050015000190080041000342450107000752600035001827000016002178520010002330000311832016123020161230201038060222s1000------------r-----000-0-eng-d  aMathematics in science and engineering. vol.1: concepts from tensor analysis and differential geometry  aNew York, Academic Press, 1961  aThomas, T.Y  a17315

@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450120000922600038002128520009002500000301532016123020161230201038060222s1000------------r-----000-0-eng-d  aLufsky, Karl  aIzolarea constructiilor cu materiale bituminoase. indrumator pentru proiectarea si executarea constructiilor etanse  aBucuresti, Ed.Tehnica, 1957, 282p  a5329

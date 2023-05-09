@@ -1,0 +1,1 @@
+00374nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450103000912600048001948520010002420000021712016123020161230201024060222s1000------------r-----000-0-eng-d  aGoedecke, W  aMatematische grundlangen der wechselstromlehre.band i.anwendungen des symbolischen recheverfahrens  aBerlin, Verlag Technik, 1952. 112 P. Cu Fig  a11677

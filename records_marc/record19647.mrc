@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000342450098000752600057001737000017002308520010002470000372892016123020161230201041060222s1000------------r-----000-0-eng-d  aProblems of metallography and the physics of metals. fourth symposium. in english translation  aNew York, Consultants Bureau Inc., 1957, 476p.Cu Fig  aLyubov. Ya B  a14017

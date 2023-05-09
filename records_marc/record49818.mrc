@@ -1,0 +1,1 @@
+00372nam--2200121-i-45000010010000000020009000100050015000190080041000341000037000752450077001122600051001898520010002400000071032016123020161230201027060222s1000------------r-----000-0-eng-d  aBauer, Ludwig And Daniels, Ralph  aProblems in organic chemistry. a functional group approache. 2nd edition  aPhiladelphia, F.A.Davis Co., 1964 Viii + 220 P  a21164

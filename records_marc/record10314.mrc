@@ -1,0 +1,1 @@
+00325nam--2200109-i-45000010010000000020009000100050015000190080041000341000016000752450083000912600041001740000466252016123020161230201046060222s1000------------r-----000-0-eng-d  aVescan, T.T  aProblema determinismului in fizica precuantica. text prescurtat de t.t.ionescu  aBucuresti, Min.Inv., /1957/, 6p.Lito

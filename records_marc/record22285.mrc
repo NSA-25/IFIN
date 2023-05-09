@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000340800011000752450099000862600057001858520009002420000346512016123020161230201040060222s1000------------r-----000-0-eng-d  a693.15  aNormativ privind executarea zidariilor de piatra bruta  la constructiile civile si industriale  aBucuresti, Ed.De Stat Pt.Arhit.Si Constr., 1954, 25p  a5303

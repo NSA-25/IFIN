@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000341000023000752450085000982600054001838520010002370000468822016123020161230201046060222s1000------------r-----000-0-eng-d  aWangsness, Roald K  aIntroduction to the theoretical physics. classical mechanics and electrodynamics  aNew York, John Wiley And Sons, Inc., 1963, X+413p  a19065

@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450103000942600053001978520010002500000070692016123020161230201027060222s1000------------r-----000-0-eng-d  aBouche Richard  aEtude des proprietes statistiques de la struc ture multiplicatrice d`un photomultiplicateur. these  aLyon, La Faculte Des Sciences, 1965 72 P./-79 P.  a20729

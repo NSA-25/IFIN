@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000037000752450076001122600055001888520010002430000480442016123020161230201046060222s1000------------r-----000-0-eng-d  aZimmerman, O.T. And Irvin Lavine  aScientific and technical abbreviations, signs and symbols. 2-nd edition  aDover, Ind. Res. Service, 1949, Xiv + 541p. Cu Fig  a12097

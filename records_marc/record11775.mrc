@@ -1,0 +1,1 @@
+00358nam--2200109-i-45000010010000000020009000100050015000190080041000342450129000752600034002048520010002380000451642016123020161230201044060222s1000------------r-----000-0-eng-d  aTopics in current chemistry. fortschritte der chemischen forschung. vol.61. physical and chemical applications of dsyestuffs  aBerlin, Springer-verlag, 1975  a45380

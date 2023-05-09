@@ -1,0 +1,1 @@
+00382nam--2200109-i-45000010010000000020009000100050015000190080041000342450129000752600058002048520010002620000453442016123020161230201045060222s1000------------r-----000-0-eng-d  aTravaux du congres international `tubes hyperfrequences`, paris 29 mai-2 juin 1956. sous le haute patronage de m.longchambon  aParis, /La Societe Des Radioelectriciens/, 1956, 478p  a13527

@@ -1,0 +1,1 @@
+00381nam--2200109-i-45000010010000000020009000100050015000190080041000342450131000752600055002068520010002610000066422016123020161230201026060222s1000------------r-----000-0-eng-d  aColloque sur la physique et les materiaux constitutifs des barres de controle des reacteurs. vienne, 11-15 nov., 1963. resumes  aVienne, Agence Intern.De L Energie Atom., 1963 27p  a19174

@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000340800007000752450130000822600031002128520010002430000267242016123020161230201036060222s1000------------r-----000-0-eng-d  a66  aInstructiuni tehnice pt.construirea, instalarea, repararea, functionarea si controlul aparatelor de vulcanizare cu foc direct  aBucuresti, Esip, 1967. 10p  a27811

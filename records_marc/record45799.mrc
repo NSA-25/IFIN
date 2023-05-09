@@ -1,0 +1,1 @@
+00357nam--2200121-i-45000010010000000020009000100050015000190080041000341000036000752450053001112600031001644900040001950000111222016123020161230201029060222s1000------------r-----000-0-eng-d  aDewitt, D.P.And Touloukian, Y.S  aThermal radiative properties. nonmetallic solids  aNew York, Ifi/Plenum, 1972  aThermophysical Properties Of Matter

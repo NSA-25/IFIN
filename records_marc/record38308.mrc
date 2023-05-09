@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000341000048000752450051001232600061001748520010002350000186132016123020161230201032060222s1000------------r-----000-0-eng-d  aDuffin, J.H., Somerville, G.F., Hanson, D.N  aComputation of multistage separation processes  aNew York, Reinhold Publ. Corporation, 1962. Viii + 361 P  a18480

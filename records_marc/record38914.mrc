@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450013000962600085001094900054001940000180072016123020161230201032060222s1000------------r-----000-0-eng-d  aEinstein, Albert  aMayer, w  aZwei Streuge Statische Losungen Der Feldgleichungen Der Enheitlichen Feldtheorie  aBerlin,  Akademie Der Wissenschaften , 1930. 13 P

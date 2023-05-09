@@ -1,0 +1,1 @@
+00340nam--2200109-i-45000010010000000020009000100050015000190080041000342450111000752600034001868520010002200000451602016123020161230201044060222s1000------------r-----000-0-eng-d  aTopics in current chemistry. fortschritte der chemischen forschung. vol.53. gas-phase electron diffraction  aBerlin, Springer-verlag, 1975  a45380

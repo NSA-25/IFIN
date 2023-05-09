@@ -1,0 +1,1 @@
+00372nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450101000942600045001958520010002400000294112016123020161230201037060222s1000------------r-----000-0-eng-d  aLeclercq, Rene  aLa cretion scientifique. complement au guide theorique et pratique de la recherche experimentale  aParis, Gauthier-villars, 1959. Vii + 86p  a16522

@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000341000024000752450102000992600035002018520010002360000162662016123020161230201031060222s1000------------r-----000-0-eng-d  aTeyssier,Jean-louis  aRecherches sur la fluorescence des gaz rares. role joue par un champ electrique auxiliaire. these  aToulouse,Universite,1965. 157p  a77966

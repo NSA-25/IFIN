@@ -1,0 +1,1 @@
+00360nam--2200121-i-45000010010000000020009000100050015000190080041000341000056000752450063001312600032001944900012002260000084572016123020161230201027060222s1000------------r-----000-0-eng-d  aDutreix, Andree., Tubiana, Maurice Et Dutreix, Jean  aBases physiques de la radiotherapie et de la radiobiologie  aParis, Masson Et C-ie, 1963  aIx+811p

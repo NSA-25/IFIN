@@ -1,0 +1,1 @@
+00367nam--2200109-i-45000010010000000020009000100050015000190080041000342450132000752600040002078520010002470000320572016123020161230201039060222s1000------------r-----000-0-eng-d  aManufacturing engineering and materials processing. vol.8. modern ceramic engineering. properties, processing and use in design  aNew York, Marcel Dekker, Inc., 1982  a74355

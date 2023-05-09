@@ -1,0 +1,1 @@
+00359nam--2200109-i-45000010010000000020009000100050015000190080041000341000039000752450084001142600051001980000043552016123020161230201025060222s1000------------r-----000-0-eng-d  aTorre De Assuncao, C., Teixeira, C  aRochas basicas de facies gabroica e doleritica intrusivas nos granitos da beira  aLisboa, Centro De Mineralogia E Geologia, 1958

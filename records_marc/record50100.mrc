@@ -1,0 +1,1 @@
+00372nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450099000962600045001958520010002400000068202016123020161230201027060222s1000------------r-----000-0-eng-d  aAlpert, Nelson L  aIr-theory and practic of infrared spec- troscopy. with a chapter on instrumenta- tion by .....  aNew York, Plenum Press, 1964 Xiv + 375 P  a19721

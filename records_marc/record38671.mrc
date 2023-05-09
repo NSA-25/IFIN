@@ -1,0 +1,1 @@
+00351nam--2200097-i-45000010010000000020009000100050015000190080041000342450107000752600071001820000182502016123020161230201032060222s1000------------r-----000-0-eng-d  aFolosirea semiconductorilor in constructia de aparataj.lucrarrile conferintei.traducere din limba rusa  aBucuresti, Institutul De Documentare Tehnica, 1959.  213 P. Cu Fig

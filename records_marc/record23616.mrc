@@ -1,0 +1,1 @@
+00374nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450102000942600046001968520010002420000333202016123020161230201039060222s1000------------r-----000-0-eng-d  aMetz, Donald J  aIntroductory lectures on the properties, detection and chemical effects of high energy radiations  aBrokhaven, National Laboratory, 1962. 28p  a17844

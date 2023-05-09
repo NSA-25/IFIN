@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000341000012000752450114000872600039002018520009002400000404222016123020161230201042060222s1000------------r-----000-0-eng-d  aSay,M.G  aAmplificatoare rotative. amplidina, medyna, magniconul si magnavoltul si folosisrea lor in sisteme de control  aBucuresti, Ed.Tehnica, 1958. 161 P  a5240

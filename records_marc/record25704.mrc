@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000342450117000752600035001927000012002278520010002390000312322016123020161230201038060222s1000------------r-----000-0-eng-d  aMathematics in science and engineering. vol.42: nonlinear ordinary differential equations in transport processes  aNew York, Academic Press, 1968  aAmes, F  a17315

@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000340800011000752450108000862600051001948520010002450000240802016123020161230201035060222s1000------------r-----000-0-eng-d  a550.34  aInternational association of seismology and physics of the earth`s interior, iaspei landesbericht (ddr)  aBerlin, Akademie Der Wissenschaften, 1967, 40p  a48022

@@ -1,0 +1,1 @@
+00366nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450083000912600061001748520009002350000044552016123020161230201025060222s1000------------r-----000-0-eng-d  aAdam Gunter  aDer einfluss der gas-atmosphare auf die oberflachenrekombination bei germanium  aStuttgart, Techniscen Hochschule, 1956 62 P. + 22 Figuri  a5776

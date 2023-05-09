@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000342450068000752600048001434900047001918520010002380000179632016123020161230201032060222s1000------------r-----000-0-eng-d  aFernsehtechnik. i teil-grundlagen des elektronischen fernsehens  aBerlin, Springer Verlag, 1956. Xiii + 772 P  aLehrbuch Der Drahtlosen Nachrichtentechnik  a12601

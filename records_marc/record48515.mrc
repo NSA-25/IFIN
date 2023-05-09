@@ -1,0 +1,1 @@
+00366nam--2200121-i-45000010010000000020009000100050015000190080041000342450092000752600054001674900012002218520011002330000084062016123020161230201027060222s1000------------r-----000-0-eng-d  aCryogenic engineering. present status and future development. the proceedings of the ..  aLondon, Heyqood Temple Industrial Publ.Ltd., 1968  aXi+280p  a621.59

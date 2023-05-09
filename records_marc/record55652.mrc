@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450103000942600042001978520009002390000012642016123020161230201024060222s1000------------r-----000-0-eng-d  aHentze, Gunter  aEntwicklung von eisenarmen elecktronenschleudern mit einer betriebfrequenz von 2,5 khz und 8,0 khz  aLeipzig, Johann Ambrosius Barth, 1956  a5526

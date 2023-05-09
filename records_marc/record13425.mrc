@@ -1,0 +1,1 @@
+00368nam--2200109-i-45000010010000000020009000100050015000190080041000342450134000752600041002098520008002500000435142016123020161230201044060222s1000------------r-----000-0-eng-d  aTables of the moment of inertia and section moduls of ordinary aangles, chanuels and bublb.angles. with certain plate combination  aNew York, W.P.A., 1941. Xiii + 197 P  a541

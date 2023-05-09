@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450123000952600031002188520010002490000162312016123020161230201031060222s1000------------r-----000-0-eng-d  aLeblanc,Jacques  aEtude et realisation d un nouveau type de bolometre au germanium dope ayant des hautes performances de lo  a lmm.these  aParis,Universite,1972. 69p  a77978

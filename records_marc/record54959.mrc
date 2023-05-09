@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450110000912600035002018520011002360000019572016123020161230201024060222s1000------------r-----000-0-eng-d  aFrank, Karl  aNucleonica.kerntechnik, wissenschaftliche und technische grundlagen sowie grenzgebiete eine bibliographie  aKoln, W.E.Saarbach, 1958. 94 P  aD.1034

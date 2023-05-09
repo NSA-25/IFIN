@@ -1,0 +1,1 @@
+00358nam--2200109-i-45000010010000000020009000100050015000190080041000342450108000752600055001838520010002380000434112016123020161230201044060222s1000------------r-----000-0-eng-d  aSystemes de valeurs limites pour les tubes electroniques et les dispositifs a semiconducteurs analogues  aGeneve, Commission Electrotechnique Int.,1961. 9 P  a21938

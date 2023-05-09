@@ -1,0 +1,1 @@
+00364nam--2200109-i-45000010010000000020009000100050015000190080041000342450114000752600056001898520009002450000260792016123020161230201036060222s1000------------r-----000-0-eng-d  aInstructiuni 180-63 pentru verificarea aparatelor de incercari la incovoiere dinamica si statica, tip dynstat  aBucuresti, Oficiul De Stat Pt.Metrologie, 1963. 26p  a9480

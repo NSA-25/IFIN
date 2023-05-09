@@ -1,0 +1,1 @@
+00363nam--2200109-i-45000010010000000020009000100050015000190080041000342450106000752600063001818520009002440000185062016123020161230201032060222s1000------------r-----000-0-eng-d  aFolosirea materialelor plastice in industria constructiilor de masini.culegere de material documentar  aBucuresti, Institutul De Documentare Tehnica, 1962.  109 P  a7999

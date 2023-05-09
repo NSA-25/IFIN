@@ -1,0 +1,1 @@
+00359nam--2200121-i-45000010010000000020009000100050015000190080041000341000031000752450077001062600028001834900026002110000030362016123020161230201025060222s1000------------r-----000-0-eng-d  aDarken, L.S.And Gurry, R.W  aPhysical chemistry of metals. with a collection of problems by m.b.bever  aNew York, Mcgraw, /1953  aMetallurgy ... Series

@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000341000015000752450114000902600033002048520010002370000052592016123020161230201026060222s1000------------r-----000-0-eng-d  aChampeix,R  aPhysique et technique des tubes electroniques. preface de g.a.boutry tome ii:theorie et fabrication des tubes  aParis,Dunod,1958. Xvi + 427p  a13184

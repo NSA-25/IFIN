@@ -1,0 +1,1 @@
+00380nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450102000962600051001988520009002490000369022016123020161230201041060222s1000------------r-----000-0-eng-d  aPopovici, Andrei  aLa physique d`action. une nouvelle physique unitaire. these de doctorat es sciences mathematiques  aIassy, Inst.Polytechnique De Jassy, 1948. 143p  a6520

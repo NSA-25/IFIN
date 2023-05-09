@@ -1,0 +1,1 @@
+00355nam--2200109-i-45000010010000000020009000100050015000190080041000342450113000752600048001888520009002360000365932016123020161230201041060222s1000------------r-----000-0-eng-d  aMax planck. wissenschaftliche selbsbiographie mit der von max von laue gehaltenen traueransprache. 3 auflage  aLeipzig, Johann Ambrosius Verlag, 1955, 33p  a6688

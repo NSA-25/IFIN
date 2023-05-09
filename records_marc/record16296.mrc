@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450094000912600051001858520009002360000406402016123020161230201042060222s1000------------r-----000-0-eng-d  aSchonberg,M  aSur la theorie des perturbations en mechanique quantique. ii. spectres continus et mistes  aBologna, Nicola Zanichelli Editore, 1951. 31 P  a5528

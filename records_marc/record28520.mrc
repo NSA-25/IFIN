@@ -1,0 +1,1 @@
+00366nam--2200121-i-45000010010000000020009000100050015000190080041000341000014000752450103000892600043001928520009002350000284152016123020161230201037060222s1000------------r-----000-0-eng-d  aLange F.H  aKorrelationselektronik. grundlagen und anwendung der korrelationsanalyse in der nachrichtentechnik  aBerlin, Veb Verlag Technik, 1959, 343p  a6676

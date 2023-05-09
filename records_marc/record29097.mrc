@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000341000034000752450096001092600030002058520010002350000278382016123020161230201037060222s1000------------r-----000-0-eng-d  aKrug, Wolfgang And Lau, Ernst  aEquidensitometry.methods of two-dimensional photometry, principles and field of application  aLondon, The Focal Library  a34216

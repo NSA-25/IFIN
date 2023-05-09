@@ -1,0 +1,1 @@
+00374nam--2200121-i-45000010010000000020009000100050015000190080041000341000022000752450083000972600064001808520008002440000212782016123020161230201034060222s1000------------r-----000-0-eng-d  aJamke-emde, Fritz  aTafeln hoherer funktionen. vierte, neubearbeitete auflage. mit 177 textfiguren  aLeipzig, B.G.Teubner Verlagsgesellschaft, 1948, Xii + 300 P  a648

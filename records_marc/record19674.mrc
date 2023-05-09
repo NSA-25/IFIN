@@ -1,0 +1,1 @@
+00346nam--2200109-i-45000010010000000020009000100050015000190080041000342450104000752600047001798520010002260000372622016123020161230201041060222s1000------------r-----000-0-eng-d  aProblemes d`ultrastructures et de fonctions nucleaires. publies sous la direction de j.andre thomas  aParis, Masson Et C-ie Ed., 1959, Xx + 222p  a16725

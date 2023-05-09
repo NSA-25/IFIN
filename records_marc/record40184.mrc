@@ -1,0 +1,1 @@
+00342nam--2200109-i-45000010010000000020009000100050015000190080041000342450110000752600037001858520010002220000167372016123020161230201031060222s1000------------r-----000-0-eng-d  aColectia: automatica-informatica. nr.52: autom atizari microelectronice. studii de caz, de dan teodorescu  aBucuresti, Editura Tehnica, 1988  a74900

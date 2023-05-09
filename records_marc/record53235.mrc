@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000340800009000751000025000842450104001092600034002130000036832016123020161230201025060222s1000------------r-----000-0-eng-d  a4754  aBesliu,C.,Patrascu,M  aUne methods pour determiner la masse et l ener gie des particules ionisantes a l aide des emulsions  aBucuresti,Acad,R.P.R.,1956.4p

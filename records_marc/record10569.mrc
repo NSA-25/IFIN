@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000341000012000752450087000872600065001748520009002390000463702016123020161230201045060222s1000------------r-----000-0-eng-d  aUrsu, I  aVariatia viscozitatii oxigenului si amestecurilor de gaze cu oxigen in cimp magnet  aCluj, Lit.Invat., 1956, 14p.Lito (Facult.De Mat.Si Fiz.Cluj)  a4790

@@ -1,0 +1,1 @@
+00365nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450080000932600060001738520010002330000225262016123020161230201034060222s1000------------r-----000-0-eng-d  aHarms, Gunter  aEtude des isotopes du potassium datage par la methode potassium-argon.these  aToulouse, La Faculte Des Sciences De L`Univ.,1964. 43 P  a22777

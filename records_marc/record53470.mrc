@@ -1,0 +1,1 @@
+00362nam--2200121-i-45000010010000000020009000100050015000190080041000341000022000752450068000972600016001654900059001810000034482016123020161230201025060222s1000------------r-----000-0-eng-d  aBrdicka, Miroslav  aOdraz svetla na skle s pruhlednou homogenni po vrchovou vrstvou  aPraha, 1947  aRozpravy Ii. Tridy Ceske Akademie. Rocnik 47, Cislo 10

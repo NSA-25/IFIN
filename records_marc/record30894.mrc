@@ -1,0 +1,1 @@
+00378nam--2200109-i-45000010010000000020009000100050015000190080041000342450125000752600059002008520009002590000260412016123020161230201036060222s1000------------r-----000-0-eng-d  aInstructiuni pentru redactarea descrierilor de inventii, in vederea inregistrarii lor la oficiul de stat pentru inventii  aBucuresti, Oficiul De Spat Pentru Inventii, 1963. 110p  a8679

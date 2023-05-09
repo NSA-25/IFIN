@@ -1,0 +1,1 @@
+00354nam--2200109-i-45000010010000000020009000100050015000190080041000342450119000752600040001948520010002340000277342016123020161230201036060222s1000------------r-----000-0-eng-d  aKristalldioden-und transistoren-taschen-tabelle. 4-te vollig neu bearbeitet auflage bearbeitet von herbert g.mende  aMunchen, Franzis-verlag, 1963, 198p  a19771

@@ -1,0 +1,1 @@
+00360nam--2200109-i-45000010010000000020009000100050015000190080041000342450125000752600041002008520009002410000212532016123020161230201034060222s1000------------r-----000-0-eng-d  aHandbook of colorimetru. prepared by the staff of the color measurement laboratory massachusetts institute of technology  aCambridge, Massachusetts, 1936. 87 P  a2370

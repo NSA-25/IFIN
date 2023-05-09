@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000341000029000752450075001042600065001798520010002440000020282016123020161230201024060222s1000------------r-----000-0-eng-d  aDoolittle, Jesse Seymour  aMechanical engineering laboratory. instrumentation and its application  aNew York, Mcgraw-hill Book Comp., 1957. Ix + 396 P.Cu Figuri  a13937

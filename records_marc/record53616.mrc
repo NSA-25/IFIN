@@ -1,0 +1,1 @@
+00350nam--2200109-i-45000010010000000020009000100050015000190080041000342450118000752600039001938520008002320000033022016123020161230201025060222s1000------------r-----000-0-eng-d  aDebavurarea pieselor forjate in matrite cu loc asuri multiple. din experienta uzinelor  ernst thelman , or.stalin  aBucuresti, I.D.T., 1957. 51 P.Lito  a419

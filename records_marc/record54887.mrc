@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000341000031000752450075001062600064001818520009002450000020292016123020161230201024060222s1000------------r-----000-0-eng-d  aGoldstine, H.H., Neuman, J  aPlanning and coding of problems for an electronic computing instrument  aPrinceton, New Jersey, Inst. For Advances Study. 1947. 69 P  a6080

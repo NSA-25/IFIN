@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000028000752450078001032600063001818520009002440000222132016123020161230201034060222s1000------------r-----000-0-eng-d  aHuet, J.J., Van Geel, J  aStabilisation du monocarbure d`uranium et production de carbure monophase  aBrussel, Studicentrum Voor Kernenergie, 1963, 12 P.+ 5 Fig  a8906

@@ -1,0 +1,1 @@
+00351nam--2200109-i-45000010010000000020009000100050015000190080041000342450134000752600023002098520009002320000440492016123020161230201044060222s1000------------r-----000-0-eng-d  aTechnical report series: no.12:light water lattices. report of the panel on light water lattice held in vienna 28 may-1 june 1962  aVienna, Iaea, 1963  a1875

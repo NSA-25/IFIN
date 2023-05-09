@@ -1,0 +1,1 @@
+00376nam--2200109-i-45000010010000000020009000100050015000190080041000342450084000752600098001598520009002570000034442016123020161230201025060222s1000------------r-----000-0-eng-d  aArbeitstagung festkorperphysik vom 9-11 mai 1952 und 8-11 april 1954 in dresded  aBerlin, Deutsche Verlag Der Wissenschaften, 1952, Und Leipzig, J.Ambrosius Barth-verlag, 1955  a4280

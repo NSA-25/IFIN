@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000341000039000752450086001142600035002008520010002350000234772016123020161230201035060222s1000------------r-----000-0-eng-d  aM.M.Taqui Khan And Artur E.Martell  aHomogeneus catalysis by metal complexes. vol. 2acctivation of alkenes and alkynes  aNew York, Academic Press, 1974  a42539

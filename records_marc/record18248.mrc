@@ -1,0 +1,1 @@
+00358nam--2200109-i-45000010010000000020009000100050015000190080041000342450100000752600063001758520010002380000386882016123020161230201041060222s1000------------r-----000-0-eng-d  aReport on the thermionic conversion specialist conference, oct.7-9, 1963, gatlinburg, tennessee  aSchenectady, N.Y., General Research Laboratory, Vii + 375p  a21159

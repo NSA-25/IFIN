@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000342450116000752600035001917000017002268520010002430000312002016123020161230201038060222s1000------------r-----000-0-eng-d  aMathematics in science and engineering. vol.12: dynamic programming in chemical engineering and process control  aNew York, Academic Press, 1961  aRoberts, S.M  a17315

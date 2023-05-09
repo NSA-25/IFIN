@@ -1,0 +1,1 @@
+00335nam--2200109-i-45000010010000000020009000100050015000190080041000342450118000752600023001938520009002160000442132016123020161230201044060222s1000------------r-----000-0-eng-d  aTechnical report series: no.60:laboratory training manual on the use of isotopes and radiation in animal research  aVienna, Iaea, 1966  a1875

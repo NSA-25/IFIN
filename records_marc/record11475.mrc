@@ -1,0 +1,1 @@
+00349nam--2200109-i-45000010010000000020009000100050015000190080041000342450116000752600039001918520009002300000454642016123020161230201045060222s1000------------r-----000-0-eng-d  aTehnologia generala in industria electonica. elaborata de un colectiv de ingineri sub conducerea lui v.stanescu  aBucuresti, Ed.Tehnica, 1963. 543 P  a8768

@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000342450111000752600033001867000017002198520010002360000259002016123020161230201036060222s1000------------r-----000-0-eng-d  aInternational series of monographs on analytical chemistry. vol.3. analytical chemistry of the rare earths  aLondon, Pergamon Press, 1961  aR.C. Vickery  a16056

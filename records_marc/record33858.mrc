@@ -1,0 +1,1 @@
+00349nam--2200109-i-45000010010000000020009000100050015000190080041000342450107000752600047001828520010002290000230642016123020161230201034060222s1000------------r-----000-0-eng-d  aExistenta, cunoastere, actiune.dialog si confruntari in filozofia contemporana.coordonator cornel popa  aBucuresti, Editura Stiintifica, 1971. 387p  a35044

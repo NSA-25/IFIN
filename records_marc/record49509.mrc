@@ -1,0 +1,1 @@
+00350nam--2200121-i-45000010010000000020009000100050015000190080041000341000033000752450055001082600034001634900031001970000074122016123020161230201027060222s1000------------r-----000-0-eng-d  aBrand, J.C.D.And Eglinton, G  aApplications of spectroscopy to organic chemis try  aLondon, Oldbourne Press, 1965  aOldbourne Chemistry Series

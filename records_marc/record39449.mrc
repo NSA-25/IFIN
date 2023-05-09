@@ -1,0 +1,1 @@
+00342nam--2200109-i-45000010010000000020009000100050015000190080041000342450115000752600033001908520009002230000174722016123020161230201032060222s1000------------r-----000-0-eng-d  aAdezivi pentru lipirea materialelor plastice intre ele si cu alte materiale (metalice si nemetalice). vol.i-ii  aBucuresti, I.D.T., 1960 82 P  a7026

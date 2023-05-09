@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000342450090000752600039001657000039002048520010002430000167562016123020161230201031060222s1000------------r-----000-0-eng-d  aComputer science and applied mathematics. digital  picture processing. second edition  aOrlando, Academic Press Inc., 1982  aAzriel Rosenfeld And Avinash C.Kak  a74782

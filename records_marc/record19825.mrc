@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000342450068000752600052001434900041001958520009002360000371112016123020161230201041060222s1000------------r-----000-0-eng-d  aProbleme de cibernetica. (trad.din l.sovietica de specialitate)  aBucuresti, Inst.De Studii Rom.-sov., 1959, 541p  aBibl.Analelor Rom.-sov.Seria Tehnica  a6851

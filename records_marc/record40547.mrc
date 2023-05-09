@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000341000022000752450115000972600032002128520010002440000163742016123020161230201031060222s1000------------r-----000-0-eng-d  aMartineau,Jacques  aContribution theorique a l etude des plasmas crees par laser confines par un champ magneti que exterieur.these  aOrsay,Universite,1971. 79 P  a78193

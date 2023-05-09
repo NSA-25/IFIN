@@ -1,0 +1,1 @@
+00366nam--2200109-i-45000010010000000020009000100050015000190080041000342450149000752600022002248520010002460000389662016123020161230201042060222s1000------------r-----000-0-eng-d  aReview series. developments in the peaceful applications of nuclear energy: no.5: mass spectrometry for uranium isotopic measurements. c.d.tabor  aVienna, I.A.E.A.,  a14678

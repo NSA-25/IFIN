@@ -1,0 +1,1 @@
+00336nam--2200109-i-45000010010000000020009000100050015000190080041000342450093000752600046001684900012002140000067282016123020161230201026060222s1000------------r-----000-0-eng-d  aDetermination of trace elements with special reference to fertilisers and feeding stuffs  aCambridge/Engl., Heffer & Sons Ltd., 1963  aVii+39p

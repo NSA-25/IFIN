@@ -1,0 +1,1 @@
+00339nam--2200109-i-45000010010000000020009000100050015000190080041000342450096000752600048001718520010002190000324122016123020161230201039060222s1000------------r-----000-0-eng-d  aMicrowave research institute symposia series. vol.4:modern advances in microwave techniques  aNew York, Politehnic Inst.Of Brooklin, 1952  a15648

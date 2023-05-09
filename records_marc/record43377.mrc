@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000342450100000752600040001757000022002158520010002370000135442016123020161230201030060222s1000------------r-----000-0-eng-d  aDevelopments in geotechnical engineering vol.16: elastic analysis of soil-fondation interaction  aAmsterdam, Elsevier Sci.Publ., 1976  aSelvadurai, A.P.S  a45424

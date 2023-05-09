@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000051000752450053001262600068001798520010002470000183842016123020161230201032060222s1000------------r-----000-0-eng-d  aDobriner, K., Katzenellenbogen, E.R., Jones, R  aInfrared absorption spectra of steroids.an atlas  aNew York, Interscience Publishers, Inc., 1953. Xv + 308 + Xiv P  a15938

@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450095000952600054001908520010002440000470872016123020161230201046060222s1000------------r-----000-0-eng-d  aVuchner,Bernard  aObtention d`hydrocarbures a chaine laterale etylenique dans la serie de la tetraline.these  aBecancon, La Faculte Des Sc.De L`Univ.,1963. 79 P  a22775

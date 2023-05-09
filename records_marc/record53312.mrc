@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000341000028000752450096001032600049001994900012002480000036062016123020161230201025060222s1000------------r-----000-0-eng-d  aDwight, Herbert Bristol  aElectrical coils and conductors. their electrical characteristics and theory. first edition  aNew York, London, Mcgraw-hill Book Co., 1945  aIx+351p

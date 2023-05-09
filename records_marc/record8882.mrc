@@ -1,0 +1,1 @@
+00342nam--2200109-i-45000010010000000020009000100050015000190080041000342450101000752600048001768520008002240000480572016123020161230201046060222s1000------------r-----000-0-eng-d  aZipp, die elektrotechnik wirkungen und gesetze der elektrizitat und ihre technischen anwendungen  aBerlin, Verlag C.A. Weller, 1940, Xv + 710p  a901

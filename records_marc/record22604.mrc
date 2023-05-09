@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000340800014000752450128000892600033002178520010002500000343322016123020161230201040060222s1000------------r-----000-0-eng-d  a531.7:621  aNoi mijloace de masurat in constructii de masini. culegere de lucrari a societatii stiintifice studentesti. trad.din l.rusa  aBucuresti, I.D.T., 1955, 68p  a26124

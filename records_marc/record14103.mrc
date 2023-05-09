@@ -1,0 +1,1 @@
+00349nam--2200109-i-45000010010000000020009000100050015000190080041000342450066000752600016001414900082001570000428352016123020161230201043060222s1000------------r-----000-0-eng-d  aLa prevision technologique: cadre, techniques et organisation  aDescription  aParis, Organisation De Cooperation Et De Developpment Economiques, 1967, 440p

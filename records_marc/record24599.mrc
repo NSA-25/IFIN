@@ -1,0 +1,1 @@
+00365nam--2200109-i-45000010010000000020009000100050015000190080041000342450101000752600070001768520009002460000323372016123020161230201039060222s1000------------r-----000-0-eng-d  aMecanizarea si automatizarea in metalurgie.traduceri din liter.sov.de spec.si articole romanesti  aBucuresti, Bibl.Analelor Rom.Sov.-seria Tehnica No.65, 1959. 293p  a6447

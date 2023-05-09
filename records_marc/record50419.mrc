@@ -1,0 +1,1 @@
+00362nam--2200109-i-45000010010000000020009000100050015000190080041000342450112000752600055001878520010002420000065012016123020161230201026060222s1000------------r-----000-0-eng-d  aColloque sur la thermodynamique des materiaux pour reacteurs. vienne,, 21-25 mai, 1962. resumes de memoires  aVienne, Agence Intern.De L Energie Atom., 1962 59p  a19165

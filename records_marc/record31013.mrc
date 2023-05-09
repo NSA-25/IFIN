@@ -1,0 +1,1 @@
+00356nam--2200109-i-45000010010000000020009000100050015000190080041000342450131000752600031002068520009002370000259222016123020161230201036060222s1000------------r-----000-0-eng-d  aInstitutul de cercetari si proiectari electrotehnice. lucrari prezentate la a patra sesiune de comunicari tehnico-stiintifice   aBucuresti, Idt.,1964. 321p  a9663

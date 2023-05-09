@@ -1,0 +1,1 @@
+00361nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450095000922600043001878520009002300000049862016123020161230201026060222s1000------------r-----000-0-eng-d  aBuzuhov, N.I  aCulegere de probleme din teoria elasticitatii si a plasticitatii. traducere din limba rusa  aBucuresti, Editura Tehnica,196o. 252 P  a69O2

@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000341000013000752450105000882600042001938520010002350000283912016123020161230201037060222s1000------------r-----000-0-eng-d  aLáng, L  aAbsorption spectra in the ultraviolet and visible region. (a theoretical and technical introduction)  aBudapest, Akadsemiai Kiado, 1963, 80p  a19279

@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000342450054000752600059001294900048001888520010002360000409802016123020161230201042060222s1000------------r-----000-0-eng-d  aSelected nuclear magnetic resonance spectral data  aCollege Station, Texas, Texas A&m Univ., 1965, /P.Dif.  aAmerican Petroleum Inst.Research Project 44  a24211

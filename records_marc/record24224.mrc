@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000342450079000752600071001547000019002258520010002440000327122016123020161230201039060222s1000------------r-----000-0-eng-d  aModern methods of microscopy. a series of papers reprinted from `research`  aLondon, Butterworths Scientific Publications, 1956, Iii + 114p.+iv  aVickers, A.E.J  a13466

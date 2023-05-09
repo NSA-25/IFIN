@@ -1,0 +1,1 @@
+00360nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450085000952600034001804900024002140000040602016123020161230201025060222s1000------------r-----000-0-eng-d  aCollatz, Lothar  aNumerische behandlung von differentialglelichu ngen. 2-te neubearbeitete auflage  aBerlin, Springer-verlag, 1955  aGrundlehren Der Mat

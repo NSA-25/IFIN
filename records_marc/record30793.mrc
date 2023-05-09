@@ -1,0 +1,1 @@
+00354nam--2200109-i-45000010010000000020009000100050015000190080041000341000018000752450100000934900051001930000261422016123020161230201036060222s1000------------r-----000-0-eng-d  aJohnson, E. R  aEffects of nuclear radiation to electron tube materials. quaterly report period: 1.03-1.06.1959  aHoboken, N. J.., Stevens Inst. Of Techn., 1959

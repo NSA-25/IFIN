@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000342450094000752600062001697000013002318520011002440000265032016123020161230201036060222s1000------------r-----000-0-eng-d  aInternational union of cristallography. bibliography 2: low-temperature x-ray diffraction  aLondon, International Union Of Cristallography, 1964-1967  aPost Ben  aD.1141

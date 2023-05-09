@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000342450108000752600030001837000030002138520010002430000312282016123020161230201038060222s1000------------r-----000-0-eng-d  aMathematics in science and engineering. vol.39: statistical decision theory in adaptive control systems  aNew York, Academic Press,  aSawaragi, Yoshikazu /S.A.  a17315

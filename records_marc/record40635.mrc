@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000341000013000752450115000882600034002038520010002370000162862016123020161230201031060222s1000------------r-----000-0-eng-d  aCaisso,J  aSur la desorganisation et la restauration a froud de cristaux d aluminium soumis a des tractions faibles.these  aPoitiere,Universite,1955. 45p  a77990

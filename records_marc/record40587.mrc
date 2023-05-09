@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000341000023000752450112000982600039002108520010002490000163342016123020161230201031060222s1000------------r-----000-0-eng-d  aMendonca,Jose Tito  aDiffusion d une onde electromagnetique dans un plasma au voisinage de la resonance hybride superieure.these  aOrsay,Universite,1976. 121 P.+ Fig  a78066

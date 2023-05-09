@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000341000050000752450056001252600056001818520010002370000050702016123020161230201026060222s1000------------r-----000-0-eng-d  aBoelter, L.M.K., Mersman, W.A., Berggren, W.P  aThe conduction of heat in composite infinite solids  aBerkeley, University Of California Press,1942. 21 P  a15525

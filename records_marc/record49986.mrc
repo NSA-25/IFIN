@@ -1,0 +1,1 @@
+00354nam--2200121-i-45000010010000000020009000100050015000190080041000341000025000752450047001002600046001474900039001930000069352016123020161230201027060222s1000------------r-----000-0-eng-d  aButler, James Newton  aIonic equilibrium. a mathematical approach  aLondon, Addison-wesley Publ.Co.Inc., 1964  aAddison-wesley Series In Chemistry

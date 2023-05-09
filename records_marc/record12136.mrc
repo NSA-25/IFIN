@@ -1,0 +1,1 @@
+00363nam--2200121-i-45000010010000000020009000100050015000190080041000341000048000752450078001232600033002018520007002340000448032016123020161230201044060222s1000------------r-----000-0-eng-d  aTipin, I.O., Durasov, P.I., Verjbitchi, N.F  aElaborarea si utilizarea fontelor antifrictiune pt.lagar. trad.din l.rusa  aBucuresti, I.D.T., 1957, 51p  a94

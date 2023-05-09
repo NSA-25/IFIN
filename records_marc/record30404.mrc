@@ -1,0 +1,1 @@
+00374nam--2200109-i-45000010010000000020009000100050015000190080041000342450142000752600037002178520010002540000265312016123020161230201036060222s1000------------r-----000-0-eng-d  aXvii. internationaler kongress fur reine und angewandte chemie. munchen, 30 aug.-6 sept. 1959. hauptvortrage. band i. anorganische chemie  aLondon, Butterworths, 1960, 341p  a16314

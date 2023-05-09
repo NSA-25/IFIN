@@ -1,0 +1,1 @@
+00366nam--2200109-i-45000010010000000020009000100050015000190080041000342450130000752600041002058520010002460000070052016123020161230201027060222s1000------------r-----000-0-eng-d  aLes bibliotheques dans le monde.programme a lo ng terme pour la federation internationale des associations de bibliothecaires  aLa Haye,Martinus Nijhoff, 1963. 66 P  a20635

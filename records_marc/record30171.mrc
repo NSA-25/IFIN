@@ -1,0 +1,1 @@
+00353nam--2200109-i-45000010010000000020009000100050015000190080041000342450105000752600053001808520010002330000267642016123020161230201036060222s1000------------r-----000-0-eng-d  aInstruments and measurements. chemical analysis, electric quantities, nucleonics and process control  aNew York, Academic Press Publishers, 1961. 1227p  a16716

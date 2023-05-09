@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000341000023000752450086000982600055001848520010002390000290272016123020161230201037060222s1000------------r-----000-0-eng-d  aLevenspiel, Octave  aChemical reaction engineering. an introduction to the design of chemical reactors  aNew York, John Wiley & Sons, Inc., 1962, Xv + 501p  a18848

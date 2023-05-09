@@ -1,0 +1,1 @@
+00340nam--2200109-i-45000010010000000020009000100050015000190080041000342450112000752600033001878520010002200000256992016123020161230201036060222s1000------------r-----000-0-eng-d  aThe international encyclopedia of physical chemistry and chemical physics. topic 1. mathematical techniques  aLondon, Pergamon Press, 1963  a11315

@@ -1,0 +1,1 @@
+00380nam--2200121-i-45000010010000000020009000100050015000190080041000341000024000752450100000992600050001998520009002490000216012016123020161230201034060222s1000------------r-----000-0-eng-d  aHeughebaert, J./S.A  aOn the angular correlation in  -e decays observed in nuclear emulsion exposed in magnetic field  aBologna, Nicola Zanichelli Editore, 1957, 6 P  a6251

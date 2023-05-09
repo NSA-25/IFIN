@@ -1,0 +1,1 @@
+00365nam--2200121-i-45000010010000000020009000100050015000190080041000341000023000752450092000982600044001908520009002340000046312016123020161230201026060222s1000------------r-----000-0-eng-d  aBrini, D., Peli, L  aOptical electronic system for transmitting the data of an electric measuring instrument  aBologna, Instituto Di Fisica, 1958, 3 P  a5840

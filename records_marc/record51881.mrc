@@ -1,0 +1,1 @@
+00371nam--2200109-i-45000010010000000020009000100050015000190080041000342450115000752600062001908520009002520000050392016123020161230201026060222s1000------------r-----000-0-eng-d  aColloque sur certains aspects de la docimetrie des rayonnements, vienne, 7-11 juin, 1960. resumes des memoires  aVienne, Agence Internationale De L Energie Atomique, 1960  a6936

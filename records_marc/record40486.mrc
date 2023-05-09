@@ -1,0 +1,1 @@
+00374nam--2200121-i-45000010010000000020009000100050015000190080041000341000023000752450112000982600032002108520010002420000164352016123020161230201031060222s1000------------r-----000-0-eng-d  aBeal,Marie-therese  aContribution a l etude theorique des phenomen es d ordre dans les proprietes electriques des alliages.these  aParis,Universite,1965. 79 P  a78248

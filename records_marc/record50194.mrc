@@ -1,0 +1,1 @@
+00372nam--2200109-i-45000010010000000020009000100050015000190080041000342450122000752600055001978520010002520000067262016123020161230201026060222s1000------------r-----000-0-eng-d  aColloque sur les effets de masse des isotopes en chimie et en biologie. vienne, 9-13 dec., 1963. resumes des memoires  aVienne, Agence Intern.De L Energie Atom., 1963 47p  a19416

@@ -1,0 +1,1 @@
+00360nam--2200109-i-45000010010000000020009000100050015000190080041000342450116000752600049001918520010002400000394602016123020161230201042060222s1000------------r-----000-0-eng-d  aRontgenographische untersuchungen uber die aushartung einer almgzn-legierung. vorgelegt von hermann schmalzried  aStuttgart, Technischen Hochschule, 1958, 11p  a14152

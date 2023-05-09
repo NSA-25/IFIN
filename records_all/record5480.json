@@ -1,0 +1,49 @@
+{
+  "IDN": "000051461",
+  "001": "000051461",
+  "002": "20161230",
+  "005": "20161230201049",
+  "008": "080717s1000------------r-----000-0-eng-d",
+  "040": {
+    "a": "IFIN-HH"
+  },
+  "1001": {
+    "L": "000029042",
+    "a": "Grauert, Hans; Lieb, Ingo"
+  },
+  "24510": {
+    "a": "Differential-und Integralrechnung I Funktionen einer reellen Veranderlichen"
+  },
+  "260": {
+    "a": "Berlin",
+    "b": "Springer Verlag",
+    "c": "1967"
+  },
+  "300": {
+    "a": "200 p."
+  },
+  "490": {
+    "a": "Heidelberger Taschenbucher",
+    "v": "Band 26"
+  },
+  "7001": {
+    "L": "000029043",
+    "a": "Hans Grauert"
+  },
+  "700": {
+    "L": "000041696",
+    "a": "Ingo Lieb"
+  },
+  "852": {
+    "a": "30082",
+    "c": "517.2/3"
+  },
+  "CAT": {
+    "a": "Sys",
+    "c": "20080717",
+    "h": "122549"
+  },
+  "FMT": "BK",
+  "LDR": "-----nam--22------u-4500",
+  "LNG": "eng"
+}

@@ -1,0 +1,1 @@
+00340nam--2200109-i-45000010010000000020009000100050015000190080041000342450083000752600063001588520009002210000185132016123020161230201032060222s1000------------r-----000-0-eng-d  aFolosirea materialelor plastice in constructia de masini.cercetare documentara  aBucuresti, Institutul De Documentare Tehnica, 1962.   47 P  a8263

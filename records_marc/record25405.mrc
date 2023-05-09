@@ -1,0 +1,1 @@
+00336nam--2200109-i-45000010010000000020009000100050015000190080041000342450105000752600037001808520009002170000315312016123020161230201038060222s1000------------r-----000-0-eng-d  aManualul inginerului termotehnician. vol.1. principii teoretice, combustibili, cazane, tratarea apei  aBucuresti, Editura Tehnica, 1961  a2644

@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450100000912600047001918520010002380000473512016123020161230201046060222s1000------------r-----000-0-eng-d  aWidder,Rudi  aGaschromatographische untersuchung der gleichgewichte bei monosaccariden. inagural dissertation  aTubingen, Eberhard-karls-univ.,1964. 155 P  a23408

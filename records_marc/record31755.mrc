@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000341000029000752450101001042600032002058520010002370000251792016123020161230201035060222s1000------------r-----000-0-eng-d  aHuard De La Marre,Pierre  aResolution de problemes d infiltrations a sur face libre au moyen d analogies electriques. these  aParis,Universite,1956. 154p  a77991

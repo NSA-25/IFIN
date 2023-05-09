@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000342450110000752600041001854900024002268520010002500000218992016123020161230201034060222s1000------------r-----000-0-eng-d  aInternational conference on co-ordination chemistry. lectures delivered and abstracts of papers submitted  aLondon, Chemical Society, 1959, 204p  aSpecial Publication  a14038

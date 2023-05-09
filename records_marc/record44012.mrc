@@ -1,0 +1,1 @@
+00343nam--2200109-i-45000010010000000020009000100050015000190080041000342450090000752600043001657000025002080000129092016123020161230201030060222s1000------------r-----000-0-eng-d  aDevelopments in solid earth geophysics vol.10: transient waves in visco-elastic media  aAmsterdam, Elsevier Sci.Publ.Co., 1976  aRicker, Normann Hurd

@@ -1,0 +1,1 @@
+00358nam--2200121-i-45000010010000000020009000100050015000190080041000341000034000752450018001092600080001274900029002070000304452016123020161230201038060222s1000------------r-----000-0-eng-d  aMagagnini, P.L., Pizzirani, G  aBaccaredda, m  aSulla Preparazione E La Polimerizzazione Di Esteri Vinilici Di Acidi Grassi  aPubblicazioni Xx-a Serie

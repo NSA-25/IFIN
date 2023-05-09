@@ -1,0 +1,1 @@
+00378nam--2200109-i-45000010010000000020009000100050015000190080041000342450124000752600059001998520010002580000073962016123020161230201027060222s1000------------r-----000-0-eng-d  aColloque sur la thermodynamique des matieres nucleaires et le transport atomique dans les solides. resumes des memoires  aVienne, Agence Intern.De L Energie Atom., 1965 Pag.Dif  a22333

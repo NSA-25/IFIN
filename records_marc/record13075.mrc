@@ -1,0 +1,1 @@
+00357nam--2200109-i-45000010010000000020009000100050015000190080041000342450108000752600054001838520010002370000438642016123020161230201044060222s1000------------r-----000-0-eng-d  aStyle manual for guidance in the preparaton of papers for journals publ.by the american inst.of physics  aNew York, American Insti.Of Physics, 1951, Ii+28p  a12753

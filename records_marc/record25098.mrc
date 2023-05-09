@@ -1,0 +1,1 @@
+00374nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450107000932600042002008520010002420000318382016123020161230201038060222s1000------------r-----000-0-eng-d  aMauras, Henri  aTables pour le calcul direct des constantes d`equilibre des systemes chimiques aux hautes temperatures  aParis, Masson & C-iem 1959, Vi + 149p  a16189

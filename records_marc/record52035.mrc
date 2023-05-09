@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000031000752450100001062600038002068520009002440000048852016123020161230201026060222s1000------------r-----000-0-eng-d  aBilse Otto.,Pudschies Paul  aBaustoff-chemie.eine einfuhrung fur unterricht und praxis.12 erweiterte und verbesserte auflage  aLeipzig,Fachbuchverlag,1958. 14op  a6687

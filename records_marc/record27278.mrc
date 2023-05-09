@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000342450093000752600034001687000037002028520010002390000296582016123020161230201037060222s1000------------r-----000-0-eng-d  aLecture notes in mathematics. vol.486:representations of af algebras and of the groups u  aBerlin, Springer-verlag, 1975  aSratila Serban Si Voiculescu Dan  a45395

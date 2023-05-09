@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000341000030000752450082001052600058001878520010002450000405872016123020161230201042060222s1000------------r-----000-0-eng-d  aSchmidt,H., Stackelberg,M  aDie neuartigen polarographischen methoden. ihr prinzip und ihre moglichkeiten  aWeinheim/Bergstr.,Verlag Chemie, 1962. 97 P. + 49 Fig  a17975

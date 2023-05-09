@@ -1,0 +1,1 @@
+00360nam--2200121-i-45000010010000000020009000100050015000190080041000341000035000752450066001102600053001768520009002290000353682016123020161230201040060222s1000------------r-----000-0-eng-d  aOgievetski, V.I., Groshin, V.G  aOn the minimum number of partial waves in two body collisions  aDubna, Joint Inst.For Nuclear Research, 1959, 8p  a6713

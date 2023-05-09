@@ -1,0 +1,1 @@
+00365nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450073000922600069001658520009002340000394632016123020161230201042060222s1000------------r-----000-0-eng-d  aRooksby, H.P  aAn investigation of ancient opal glasses including the portland vase  aReprinted From The: `J.Of The Soc.Of Glass Technology, 1959, 27p  a6739

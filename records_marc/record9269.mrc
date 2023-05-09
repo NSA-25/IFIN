@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000341000051000752450079001262600041002058520010002460000476702016123020161230201046060222s1000------------r-----000-0-eng-d  aWilson, Bright E., Decius, J.C., Cross, Paul C  aMolecular vibrations. the theory of infrared and raman vibrational spectra  aNew York, Mcgraw-hill, 1955, Xi+388p  a10646

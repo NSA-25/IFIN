@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450117000922600035002098520010002440000438542016123020161230201044060222s1000------------r-----000-0-eng-d  aSturley, K.R  aFrequency-modulated radio. sn introduction to the theory, design, construction and servicing of vhf/fm receivers  aLondon, Newnes, 1956, Vii+120p  a12384

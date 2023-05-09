@@ -1,0 +1,1 @@
+00374nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450098000952600049001938520010002420000468312016123020161230201046060222s1000------------r-----000-0-eng-d  aWalter, Herbert  aSynthese, reaktionen und eigenschaften mehrfach substituierter pyrimidine. (teza de doctorat)  aStuttfart, Technischen Hochschule, 1961, 84p  a17352

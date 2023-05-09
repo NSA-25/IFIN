@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000342450126000752600035002017000014002368520010002500000444192016123020161230201044060222s1000------------r-----000-0-eng-d  aPure and applied mathematics. a series of monographs and textbooks. vol.93: an introduction to nonharmonic fourier series  aNew York, Academic Press, 1980  aYoung,R.M  a13669

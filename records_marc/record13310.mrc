@@ -1,0 +1,1 @@
+00362nam--2200109-i-45000010010000000020009000100050015000190080041000342450111000752600056001868520010002420000436292016123020161230201044060222s1000------------r-----000-0-eng-d  aStructural processes in creep. report of a symposium organized by the inst.of metals, london 3-4 may, 1961  aLondon, Percy Lund, Humphries & Co.Ltd., 1961, 351p  a17923

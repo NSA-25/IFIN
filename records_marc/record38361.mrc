@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000341000024000752450081000992600064001808520010002440000185602016123020161230201032060222s1000------------r-----000-0-eng-d  aDreisbach Robert, R  aPressure-volume-temperature relationships of organic compounds.third edition  aSandusky, Ohio, Handbook Publishers, Inc., 1952. Xi + 303 P  a18302

@@ -1,0 +1,1 @@
+00365nam--2200121-i-45000010010000000020009000100050015000190080041000341000037000752450077001122600044001898520010002330000472592016123020161230201046060222s1000------------r-----000-0-eng-d  aWendel, Gerhard Und Geiger, Rolf  aKunststoff-verarbeitung fur klempner, installateure und verwandte berufe  aStuttgart, Deva Fachverlag, Viii + 142p  a13627

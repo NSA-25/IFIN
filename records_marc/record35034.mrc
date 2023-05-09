@@ -1,0 +1,1 @@
+00380nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450101000942600053001958520010002480000218882016123020161230201034060222s1000------------r-----000-0-eng-d  aGillion, Edgar  aL`electronique et ses applications.telecommunications.electronique industrielle.deuxieme edition  aLouvain,Librairie Universitaire, 1959. Viii+370p  a15976

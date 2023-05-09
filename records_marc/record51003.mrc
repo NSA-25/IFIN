@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000342450098000752600041001734900015002147000025002290000059172016123020161230201026060222s1000------------r-----000-0-eng-d  aDigitale informations wandler. probleme der informationsverarbeitung in ausgewahlten beitrage  aBraunschweig, Fr.Vieweg & Sohn, 1962  aXxiii+740p  aHoffmann, Walter Von

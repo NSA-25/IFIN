@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000342450020000752600081000954900065001768520012002410000324002016123020161230201039060222s1000------------r-----000-0-eng-d  aMiron nicolescu  aOpera Matematica. Functii Poliarmonice. (Apare Sub Ingrijirea Prof.S.Marcus)  aBucuresti, Ed.Acad.Republicii Socialiste Romania, 1980, 353p  a51(081)

@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000340800015000752450122000902600037002128520010002490000261172016123020161230201036060222s1000------------r-----000-0-eng-d  a625.1(094)  aInstructiuni pentru verificarea aparatelor pentru masurat ecartamentul si suprainaltarea caii ferate. editie oficiala  aBucuresti, Ed.Tehnica, 1974. 12p  a42920

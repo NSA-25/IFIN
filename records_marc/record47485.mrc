@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000342450098000752600044001737000018002178520018002350000094362016123020161230201028060222s1000------------r-----000-0-eng-d  aTechniques of metals research. vol.4: physicochemical measurements in metals research. part.1  aNew York, Interscience Publishers, 1970  aBunshah, R. F  a669.018:539.2

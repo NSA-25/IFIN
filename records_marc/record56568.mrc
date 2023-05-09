@@ -1,0 +1,1 @@
+00361nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450094000952600040001898520010002290000003482016123020161230201024060222s1000------------r-----000-0-eng-d  aGeyger, William  aMagnetic-amplifier circuits.basic principles characteristic and applications.2-nd edition  aNew York, Mcgraw-hill. Xiii + 394 P  a12393

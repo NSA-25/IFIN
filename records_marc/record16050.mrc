@@ -1,0 +1,1 @@
+00342nam--2200109-i-45000010010000000020009000100050015000190080041000342450096000752600051001718520010002220000408862016123020161230201042060222s1000------------r-----000-0-eng-d  aLa science des congres internationaux. vol.i:theorie et pratique des congres internationaux  aBruxelles, Union Des Assoc.Intern.,1960. 135 P  a18568

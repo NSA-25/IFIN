@@ -1,0 +1,1 @@
+00380nam--2200121-i-45000010010000000020009000100050015000190080041000341000042000752450082001172600049001998520010002480000277452016123020161230201036060222s1000------------r-----000-0-eng-d  aKrivan, V., Tolgyessy, J.And Varga, S  aNuclear analytical chemistry. i: introduction to nuclear analytical chemistry  aBaltimore, University Park Press, 1971, 271p  a42623

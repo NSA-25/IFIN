@@ -1,0 +1,1 @@
+00352nam--2200109-i-45000010010000000020009000100050015000190080041000342450125000752600034002008520008002340000215062016123020161230201034060222s1000------------r-----000-0-eng-d  aExperienta folosirii tehnologiei inaintate in uzinele constructoare de masini grele.culegere de articole.trad.din l.rusa  aBucuresti, I.D.T., 1958. 169p  a594

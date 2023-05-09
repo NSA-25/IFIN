@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000025000752450115001002600032002158520010002470000163352016123020161230201031060222s1000------------r-----000-0-eng-d  aGaillard,Michel Lois  aApplication des methodes de spectroscopie hertzienne aux etats excites dans un faisceau d ions acceleres.these  aLyon,Universite,1974. 256 P  a78067

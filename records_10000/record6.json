@@ -1,0 +1,48 @@
+{
+  "IDN": "000056935",
+  "001": "000056935",
+  "002": "20201027",
+  "005": "20201027062533",
+  "008": "201027s1000------------r-----000-0-eng-d",
+  "040": {
+    "a": "IFIN-HH"
+  },
+  "041": {
+    "a": "eng"
+  },
+  "1001": {
+    "L": "000031644",
+    "a": "Trache, Livius"
+  },
+  "24510": {
+    "a": "Exotic Nuclei and Nuclear/Particle Astrophysics (IV). From Nuclei to Stars.",
+    "c": "Livius Trache; Paula Gina Isar (Eds.)"
+  },
+  "260": {
+    "a": "Mellville, New York",
+    "b": "AIP",
+    "c": "2012"
+  },
+  "300": {
+    "a": "X+394 p."
+  },
+  "500": {
+    "a": "Donatie Misicu Serban"
+  },
+  "7001": {
+    "L": "000037720",
+    "a": "Isar, Paula Gina"
+  },
+  "852": {
+    "a": "82862",
+    "c": "061.3"
+  },
+  "CAT": {
+    "a": "SYS",
+    "c": "20201027",
+    "h": "062533"
+  },
+  "FMT": "BK",
+  "LDR": "-----nam--22------u-4500",
+  "LNG": "eng"
+}

@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000342450094000752600072001694900009002418520010002500000032892016123020161230201025060222s1000------------r-----000-0-eng-d  aAere. electronic equipment. instruction manual for meter contamination no.1 mk.2. issue 2  aLondon, Harwel, Berkeley, Atomicenergy Esta- Blish, 1956 40 P.+1 Pl  aAere  a13097

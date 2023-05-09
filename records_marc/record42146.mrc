@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000038000752450078001132600039001914900027002300000147752016123020161230201031060222s1000------------r-----000-0-eng-d  aBallhausen, C.J.And Gray, Harry B  aMolecular orbital theory. an introductory lecture note and reprint volume  aNew York, W.A.Benjamin, Inc., 1964  aFrontiers In Chemistry

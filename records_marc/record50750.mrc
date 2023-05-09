@@ -1,0 +1,1 @@
+00379nam--2200109-i-45000010010000000020009000100050015000190080041000342450129000752600055002048520010002590000061702016123020161230201026060222s1000------------r-----000-0-eng-d  aAbstracts of scientific papers presented at the xviiith international congress of pure and applied chemistry. montreal, 1961  aToronto, University Of Toronto Press, 1961 V+290 P  a18298

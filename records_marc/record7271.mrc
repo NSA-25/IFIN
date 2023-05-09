@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000341000015000752450108000902600045001988520008002430000496702016123020161230201047060222s1000------------r-----000-0-eng-d  aAssur, L.V  aIssledovanie ploskih sterzhnevyhmehanizmov snizshimi parami s tochki zreniia ihstruktury iklassifikacii  aMoskva, Izd. Akad. Nauk Sssr, 1952, 592s  a289

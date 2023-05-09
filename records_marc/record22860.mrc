@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000341000023000752450063000982600081001618520009002420000340762016123020161230201039060222s1000------------r-----000-0-eng-d  aNestler Carl-georg  aEinfuhrung in die elektronenmetallographie. eisen und stal  aLeipzig, Veb Deutscher Verlag Fur Grundstoffindustrie, 1961. Ix+164p.+82 Fig  a8146

@@ -1,0 +1,1 @@
+00346nam--2200109-i-45000010010000000020009000100050015000190080041000342450102000752600050001778520009002270000370822016123020161230201041060222s1000------------r-----000-0-eng-d  aMasuri pentru asigurarea functionarii instalatiilor termotehnice. culegere de material documentar  aBucuresti, Ed. Energetica De Stat, 1953. 143p  a3014

@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450125000942600029002198520009002480000180122016123020161230201032060222s1000------------r-----000-0-eng-d  aFerry, Ervin S  aA handbook of phisycs measurements. 2-nd edition revised. vol. i fundamenta measurement, properties of matter and optics  aNew York, Wiley, 1926-29  a1052

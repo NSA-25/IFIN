@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450095000932600058001888520009002460000019382016123020161230201024060222s1000------------r-----000-0-eng-d  aDoller, Edith  aDer konzentrationsumschlag der fluoreszenz von pyren und pyrenderivaten.(teza de doctorat)  aStuttgart, Technische Hochschule, 1961. 53 P.+ 40 Fig  a3147

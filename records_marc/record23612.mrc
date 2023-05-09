@@ -1,0 +1,1 @@
+00364nam--2200121-i-45000010010000000020009000100050015000190080041000342450073000752600040001487000044001888520010002320000333242016123020161230201039060222s1000------------r-----000-0-eng-d  aMonografii de fizica: nr.6: rezonanta magnetica nucleara si biologie  aTimisoara, Univ.Din Timisoara, 1986  aVanghelu, Dorina Andru Si Nagy, Adriana  a74617

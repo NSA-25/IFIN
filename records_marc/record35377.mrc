@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450076000962600065001728520009002370000215452016123020161230201034060222s1000------------r-----000-0-eng-d  aJeffreys, Harold  aThe earth, its origin, history and physical constitution. third edition  aCambridge, University Press, 1952, Xi + 392p., 30 Fig., X Pl  a3242

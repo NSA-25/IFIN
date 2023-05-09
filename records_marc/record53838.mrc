@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000342450104000752600047001794900013002267000014002390000030802016123020161230201025060222s1000------------r-----000-0-eng-d  aColor television standards. selected papers and records of the national television system committee  aNew York, Mcgraw-hill Book Co., Inc., 1955  aXii+520p  aFink, D.G

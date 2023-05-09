@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000045000752450059001202600068001798520010002470000079232016123020161230201027060222s1000------------r-----000-0-eng-d  aBerrondo, M., Moshinsky, M.And Pineda, J  aGroup theory and nuclear structure in the 2s-l d shell  aMexico, Institute De Fisica, Universidad De Me Xico, 1966, 84 P  a25190

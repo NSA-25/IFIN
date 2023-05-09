@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000342450107000752600039001824900025002218520009002460000484602016123020161230201047060222s1000------------r-----000-0-eng-d  aAvtomatizaciia machinostroitelnyh processov. tom 3:obrabotka rezaniem i obshitie voprosy avtomatizacii  aMoskva, Izd.Nauk Sssr, 1960. 296 P  aInst.Machinostroeina  a7573

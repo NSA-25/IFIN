@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000342450084000752600044001597000036002038520010002390000301912016123020161230201038060222s1000------------r-----000-0-eng-d  aMolecular orbitals in chemistry, physics and biology. a tribute to r.s.mulliken  aNew York, Acad.Press, 1964, Xiii + 578p  aLowdin, Per-olov And Pullman, B  a20083

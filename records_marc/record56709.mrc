@@ -1,0 +1,1 @@
+00380nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450085000912600072001768520010002480000002072016123020161230201023060222s1000------------r-----000-0-eng-d  aFronteau, J  aSome aspects of trace - space computation for high-energy charged particle beams  aGeneva, European Organization For Nuclear Research.  89 P. + 35 Fig  a24527

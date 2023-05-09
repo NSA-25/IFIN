@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000342450080000752600031001557000051001868520010002370000217292016123020161230201034060222s1000------------r-----000-0-eng-d  aHandbook of automation, computation and control. vol.i:control fundamentals  aNew York, John Wiley, 1958  aEugene M.Grabbe, Simon Ramo, Dean E.Wooldridge  a15071

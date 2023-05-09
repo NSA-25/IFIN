@@ -1,0 +1,1 @@
+00364nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450096000942600043001908520009002330000344782016123020161230201040060222s1000------------r-----000-0-eng-d  aNordling, Carl  aExperimantal studies of electron binding energies and auger spectra. inaugural dissertation  aUppsala, Almqvist & Wiksells, 1959, 3p  a7057

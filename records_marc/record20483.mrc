@@ -1,0 +1,1 @@
+00380nam--2200121-i-45000010010000000020009000100050015000190080041000341000042000752450066001172600065001838520010002480000364532016123020161230201040060222s1000------------r-----000-0-eng-d  aPowell J.A., Zollman J.A., Martin I.E  aCeramic, sapphire and glass seals for the model c-stellarator  aLancaster, Radio Corporation Of America, /F.A./ 8p. + Figuri  a15205

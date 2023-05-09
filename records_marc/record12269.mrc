@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000042000752450074001172600052001918520010002430000446702016123020161230201044060222s1000------------r-----000-0-eng-d  aTibbs, Christopher And Johnstone, G.G  aFrequency modulation engineering foreword by sturley. 2-nd ed.revised  aLondon, Chapman And Hall, 1956, Xii+435p.Cu Fig  a12071

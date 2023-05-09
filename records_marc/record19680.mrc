@@ -1,0 +1,1 @@
+00338nam--2200109-i-45000010010000000020009000100050015000190080041000342450106000752600039001818520008002200000372562016123020161230201041060222s1000------------r-----000-0-eng-d  aProblemele sudarii in constructiile de masini energetice si in industria metalurgica. trad.din l.rusa  aBucuresti, I.D.T., 1957, 171p.Lito  a452

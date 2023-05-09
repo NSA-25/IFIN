@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000342450106000752600033001817000030002148520010002440000261492016123020161230201036060222s1000------------r-----000-0-eng-d  aInternational series of monographs in pure and applied mathematics.vol. 26. elements of linear spaces  aOxford, Pergamon Press, 1958  aA.R. Amin-moez, A.L. Fass  a10184

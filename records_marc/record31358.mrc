@@ -1,0 +1,1 @@
+00352nam--2200109-i-45000010010000000020009000100050015000190080041000342450106000752600051001818520010002320000255772016123020161230201036060222s1000------------r-----000-0-eng-d  aInst. of petroleum standards for petroleum and its products. part 1. methods for analysis and testing  aLondon, Inst.Of Petroleum, 1964. Xxviii + 902p  a19674

@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000341000038000752450067001132600039001804900028002190000379312016123020161230201041060222s1000------------r-----000-0-eng-d  aRadu,Rodica Si Branzan,Constantin  aControlul nedistructiv al materialelor prin metode radioactive  aBucuresti, Ed.Tehnica, 1975. 434 P  aFizica Moderna Aplicata

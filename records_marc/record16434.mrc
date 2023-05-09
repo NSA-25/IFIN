@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450085000942600056001798520010002350000405022016123020161230201042060222s1000------------r-----000-0-eng-d  aSchaefer Klaus  aStatistische th.der materie. bd.i:allgemeine grundlagen und anwendungen auf gase  aGottingen, Vandenhoeck & Ruprecht, 1960. Xi + 282 P  a16261

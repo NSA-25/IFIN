@@ -1,0 +1,1 @@
+00365nam--2200121-i-45000010010000000020009000100050015000190080041000341000015000752450107000902600036001978520010002330000163212016123020161230201031060222s1000------------r-----000-0-eng-d  aReiss,Rene  aContribution a l etude des proprietes optiques des halogenures cuivreaux aux bases temperatu res.these  aStrasbourg,Universite,1959. 43p  a78034

@@ -1,0 +1,1 @@
+00352nam--2200109-i-45000010010000000020009000100050015000190080041000342450110000752600047001858520010002320000386942016123020161230201041060222s1000------------r-----000-0-eng-d  aRlegles pour la mesure de la tension d`essai aux frequences industrielles dans les assais dielectriques..  aGeneve, Cei, 1953 (Premiere Ed.1953). 15 P  a12253

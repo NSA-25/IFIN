@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000341000028000752450112001032600034002158520010002490000164292016123020161230201031060222s1000------------r-----000-0-eng-d  aCohen Tannoudji, Claude  aTheorie quantique du cycle de pompage optique. verification experimentale des nouveaux effets prevus. these  aParis, Universite, 1962. 72 P  a78241

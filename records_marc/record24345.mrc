@@ -1,0 +1,1 @@
+00372nam--2200121-i-45000010010000000020009000100050015000190080041000341000035000752450072001102600059001828520009002410000325912016123020161230201039060222s1000------------r-----000-0-eng-d  aMocanu, D.R.Si Teodorescu, C.C  aRezistenta materialelor cu aplicatii in domeniul feroviar. partea i  aBucuresti, Ed.Cailor Ferate, 1954, (Litografiat), 327p  a3849

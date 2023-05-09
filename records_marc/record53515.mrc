@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000341000030000752450102001052600037002074900015002440000034032016123020161230201025060222s1000------------r-----000-0-eng-d  aDuncan, J., Starling, S.G  aA text-book of physics for students of science and engineering. second completely revised edition  aLondon,  Macmillan And Co , 1950  aXxii+1063p

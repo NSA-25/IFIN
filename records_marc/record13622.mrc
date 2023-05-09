@@ -1,0 +1,1 @@
+00370nam--2200109-i-45000010010000000020009000100050015000190080041000342450123000752600052001988520010002500000433172016123020161230201044060222s1000------------r-----000-0-eng-d  aSymposium de matallurgie speciale, org.a saclay les 27 et 28 juin 1957 par le dep.de metallurgie et de chimie applique  aSaclay, Centre D`Etudes Nucl.,1958. 126 P.+ Fig  a14830

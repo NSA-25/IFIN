@@ -1,0 +1,1 @@
+00364nam--2200121-i-45000010010000000020009000100050015000190080041000342450081000752600033001564900044001898520009002330000219942016123020161230201034060222s1000------------r-----000-0-eng-d  aExecutarea simultana a mai multor operatii la strunjirea aliajelor din cupru  aBucuresti, I.D.T., 1962. 23p  aDin Experienta Fruntasilor In Productie  a7956

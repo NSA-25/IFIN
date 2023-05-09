@@ -1,0 +1,1 @@
+00357nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450072000942600060001668520009002260000020172016123020161230201024060222s1000------------r-----000-0-eng-d  aFrancombe, M.H  aStructure-cell data and expansion coefficeints of bismuth telluride  aReprinted From British Journal Of Applied Physics. 1958  a5697

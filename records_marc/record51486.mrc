@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000027000752450098001022600048002008520009002480000054342016123020161230201026060222s1000------------r-----000-0-eng-d  aAutenrieth - Rosenmund  aQualitative chemische analyse zum  gebrauch in chemischen und pharmazeutischen labora- torien  aDresden, Verlag Von T.Steinkopf, 1958 158 P  a7570

@@ -1,0 +1,1 @@
+00364nam--2200121-i-45000010010000000020009000100050015000190080041000342450099000752600037001747000021002118520010002320000333522016123020161230201039060222s1000------------r-----000-0-eng-d  aMonographs in modern electrical technology. vol.5: computer-aided design of electric machinery  aCambridge, The M.I.T.Press, 1971  aKusko, Alexander  a37658

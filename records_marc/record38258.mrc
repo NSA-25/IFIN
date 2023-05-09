@@ -1,0 +1,1 @@
+00378nam--2200109-i-45000010010000000020009000100050015000190080041000342450128000752600055002038520010002580000186632016123020161230201032060222s1000------------r-----000-0-eng-d  aConference sur l emploi des sources de rayonnements intense dans l industrie. salzbourg, 27-31 mai 1963.resume des memoires  aVienne, Agence Intern.De L Energ.Atom., 1963. 65 P  a19160

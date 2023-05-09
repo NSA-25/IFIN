@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000340800011000752450109000862600048001958520010002430000222372016123020161230201034060222s1000------------r-----000-0-eng-d  a5(092)  aHistoire generale des sciences, publiee sous la direction de r.taton. 1: la science antique et medievale  aParis, Press.Universitaires De France, 1958  a15532

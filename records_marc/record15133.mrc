@@ -1,0 +1,1 @@
+00372nam--2200121-i-45000010010000000020009000100050015000190080041000341000038000752450065001132600062001788520010002400000418042016123020161230201043060222s1000------------r-----000-0-eng-d  aSkrotski Bernhardt, Vopat William  aApplied energy conversion. a text in power plant engineering  aNew York, Mcgraw-hill Book Comp.,1945. Xiii + 509 P.+ Fig  a13989

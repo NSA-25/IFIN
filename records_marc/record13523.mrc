@@ -1,0 +1,1 @@
+00362nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450102000922600037001948520009002310000434162016123020161230201044060222s1000------------r-----000-0-eng-d  aSzablewski,W  aEinige neuere ergebnisse zur theorie turbulenter stromungen von gasen stark veranderlicher dichte  aBerlin, Akad.-verlag, 1963. 24 P  a9045

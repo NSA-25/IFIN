@@ -1,0 +1,1 @@
+00371nam--2200109-i-45000010010000000020009000100050015000190080041000342450129000752600047002048520010002510000319432016123020161230201038060222s1000------------r-----000-0-eng-d  aThe merck index of chemicals and drugs.an encyclopedia for chemists, pharmacist, physician and members of allied professions  aRahway, Merck & Co, Inc., 1960. Xi + 1642p  aD.223

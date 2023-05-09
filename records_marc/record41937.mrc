@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000033000752450084001082600051001928520010002430000149842016123020161230201031060222s1000------------r-----000-0-eng-d  aHorst Rothe Und Wernwe Kleen  aBucherei der hochfrequenztechnik. elektronenrohren als anfangsstufen-verstarker  aLeipzig, Akademische Verlagsgesellschaft, 1955  a12331

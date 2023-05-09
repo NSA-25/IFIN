@@ -1,0 +1,1 @@
+00352nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450038000962600033001344900063001670000063952016123020161230201026060222s1000------------r-----000-0-eng-d  aCritchfield, F.E  aOrganic functional group analysis  aOxford, Pergamon Press, 1963  aInternational Series Of Monographs On Analytical Chemistry

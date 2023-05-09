@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450109000952600042002048520010002460000163252016123020161230201031060222s1000------------r-----000-0-eng-d  aFalnes,Johannes  aExcitation of space charge waves and their effect on the electric impedence of thin semiconductor wafers  aTrondheim,Universitetet,1972. Pag.Dif  a78132

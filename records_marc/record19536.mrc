@@ -1,0 +1,1 @@
+00364nam--2200109-i-45000010010000000020009000100050015000190080041000342450120000752600049001958520010002440000374002016123020161230201041060222s1000------------r-----000-0-eng-d  aProgress in earthquake prediction research. vol.1.terestrial and space techniques in earthquake prediction research  aWiesbaden, Fridr.V.$ SOHN BRAUNSCHWEIG, 1979  a49007

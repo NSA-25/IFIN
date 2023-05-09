@@ -1,0 +1,1 @@
+00357nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450029000952600076001244900035002000000350132016123020161230201040060222s1000------------r-----000-0-eng-d  aNielsen, Vibeke  aLindhard, j., scharff, m  aApproximation Method In Classical Scattering By Screened Coulomb Fields  aMatematisk-fysiske Meddelelser

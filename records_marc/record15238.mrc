@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450101000912600055001928520010002470000416992016123020161230201043060222s1000------------r-----000-0-eng-d  aSimpson,D.J  aCorrelation by means of radioactivity logging in the witwatersrand system in the elerksdorp area  aJojannesburg, Hortors Ltd.,1952. 52 P. + 11 Planse  a11981

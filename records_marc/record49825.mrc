@@ -1,0 +1,1 @@
+00366nam--2200121-i-45000010010000000020009000100050015000190080041000341000027000752450088001022600044001908520010002340000070962016123020161230201027060222s1000------------r-----000-0-eng-d  aBenedetti-pichler, A.A  aIdentification of materials via physical prope rties, chemical tests and microscopy  aWien, Springer-verlag, 1964. Xi + 492 P  a21152

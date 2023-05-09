@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000341000031000752450092001062600045001988520008002430000337842016123020161230201039060222s1000------------r-----000-0-eng-d  aNelson, J.H. And Silman, H  aThe application of radiant heat to metal finishing. a critical survey or the infrared..  aLondon, Chapman And Hall, 1945. Xi + 91p  a674

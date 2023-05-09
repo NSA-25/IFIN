@@ -1,0 +1,1 @@
+00378nam--2200109-i-45000010010000000020009000100050015000190080041000342450138000752600046002138520009002590000385692016123020161230201041060222s1000------------r-----000-0-eng-d  aRepertoriul periodicelor straine din r.p.r. 1963. seria a: stiinta in general. matematica, st.fizico-chimice, geolog.-geogr., tehnica  aBucuresti, Bibl.Centr.De Stat, 1963, 549p  a9477

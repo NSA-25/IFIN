@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450115000932600037002088520009002450000449942016123020161230201044060222s1000------------r-----000-0-eng-d  aTodoran, Ioan  aStudiul fotometrului vizual `graff`. aplicatie la studiul stelei variabile de echipsa rz deaconis. autoreferat  aBucuresti, Observat., Lito., 13p  a6526

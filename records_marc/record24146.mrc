@@ -1,0 +1,1 @@
+00354nam--2200109-i-45000010010000000020009000100050015000190080041000342450111000752600048001868520010002340000327902016123020161230201039060222s1000------------r-----000-0-eng-d  aMicrowave research institute symposia series. vol.11:electromagnetics and fluid dynamics of gaseous plasma  aNew York, Politehnic Inst.Of Brooklin, 1961  a15648

@@ -1,0 +1,1 @@
+00372nam--2200121-i-45000010010000000020009000100050015000190080041000341000022000752450108000972600035002058520010002400000162702016123020161230201031060222s1000------------r-----000-0-eng-d  aTrinquier,Jacques  aContribution a l la correction de l aberration chromatique du microscope electronique magneti que.these  aToulouse,Universite,1963. 146p  a77971

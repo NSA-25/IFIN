@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000028000752450110001032600034002138520010002470000480152016123020161230201046060222s1000------------r-----000-0-eng-d  aKhalaf, Ali Ali Mohamed  aFragmentation, rearrangement and reorientation reactions of arenes induced by aluminium chloride. dissert  aAustin, Texas, 1965, Xiv+230p  a24038

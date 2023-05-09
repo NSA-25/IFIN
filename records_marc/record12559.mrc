@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000341000023000752450082000982600066001808520010002460000443802016123020161230201044060222s1000------------r-----000-0-eng-d  aPullock, Friedrich  aAutomation. materialien zur beurteilung der oekonomischen und sozialen folgen  aFrankfurt Am Main, Europaische Verlagsanstalt, 1956, Vii+318p  a12332

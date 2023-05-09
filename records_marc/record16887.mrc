@@ -1,0 +1,1 @@
+00352nam--2200109-i-45000010010000000020009000100050015000190080041000342450135000752600022002108520010002320000400492016123020161230201042060222s1000------------r-----000-0-eng-d  aSafety series:nr.86:techniques and dicision making in the assessment of off-site consequences of an accident in a nuclear facility  aVienna, Iaea,1987  a11497

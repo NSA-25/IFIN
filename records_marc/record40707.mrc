@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450113000932600031002068520010002370000162142016123020161230201031060222s1000------------r-----000-0-eng-d  aLaugier,Andre  aPreparation et proprietes de jonctions epitaxi ales au germanium obtenues a partir d une phase liquide.these  aLyon,Universite,1964. 106p  a77957

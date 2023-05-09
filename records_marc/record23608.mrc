@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000342450101000752600040001767000019002168520010002350000333282016123020161230201039060222s1000------------r-----000-0-eng-d  aMonografii de fizica: nr.9: formarea defectelor de structura in cristale in procesul de crestere  aTimisoara, Univ.Din Timisoara, 1987  aNicoara, Irina  a74617

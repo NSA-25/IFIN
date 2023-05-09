@@ -1,0 +1,48 @@
+{
+  "IDN": "000051462",
+  "001": "000051462",
+  "002": "20161230",
+  "005": "20161230201049",
+  "008": "080717s1000------------r-----000-0-eng-d",
+  "040": {
+    "a": "IFIN-HH"
+  },
+  "1001": {
+    "L": "000029044",
+    "a": "Grauert, Hans; Fischer, Wolfgang"
+  },
+  "24510": {
+    "a": "Differential-und Integralrechnung II Differentialrechnung in mehreren Veranderlichen Diffrentialgleichungen"
+  },
+  "260": {
+    "a": "Berlin",
+    "b": "Springer Verlag",
+    "c": "1968"
+  },
+  "300": {
+    "a": "216 p."
+  },
+  "490": {
+    "a": "Heidelberger Taschenbucher",
+    "v": "Band 36"
+  },
+  "700": {
+    "L": "000029043",
+    "a": "Hans Grauert"
+  },
+  "700Wo": {
+    "l": "fgang Fischer"
+  },
+  "852": {
+    "a": "30082",
+    "c": "517.2/3"
+  },
+  "CAT": {
+    "a": "Sys",
+    "c": "20080717",
+    "h": "123256"
+  },
+  "FMT": "BK",
+  "LDR": "-----nam--22------u-4500",
+  "LNG": "eng"
+}

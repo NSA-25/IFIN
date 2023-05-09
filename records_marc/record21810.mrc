@@ -1,0 +1,1 @@
+00378nam--2200109-i-45000010010000000020009000100050015000190080041000342450106000752600077001818520010002580000351262016123020161230201040060222s1000------------r-----000-0-eng-d  aOrganikum. organisch-chemisches grundpraktikum. von einem autorenkollektiv. 4., durchgesehene auflage  aBerlin, Veb Deutscher Verlag Der Wiss., 1964, Xvii + 596p.+ Beilage: 57p  a20649

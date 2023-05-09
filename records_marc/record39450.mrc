@@ -1,0 +1,1 @@
+00341nam--2200109-i-45000010010000000020009000100050015000190080041000342450114000752600033001898520009002220000174712016123020161230201032060222s1000------------r-----000-0-eng-d  aAdezivi pentru lipirea materialelor pastice intre ele si cu alte materiale (metalice si nemetalice). vol.i-ii  aBucuresti, I.D.T., 1960 71 P  a7026

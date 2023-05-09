@@ -1,0 +1,1 @@
+00362nam--2200109-i-45000010010000000020009000100050015000190080041000342450128000752600038002038520011002410000385522016123020161230201041060222s1000------------r-----000-0-eng-d  aRepertoriul general al periodicelor stiintifice si tehnice straine aflate in principalele biblioteci din rpr. vol.5: chimie  aBucuresti, Ed.Acad.Rpr, 1957-1961  aD.1043

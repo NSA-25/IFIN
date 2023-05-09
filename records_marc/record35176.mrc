@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450008000942600067001024900084001690000217462016123020161230201034060222s1000------------r-----000-0-eng-d  aGroth, Wilhelm  aS.a  aAnreicherung Der Uran-isotope Nach Dem Gaszentrifugenverfahren  aForschungsberichte Des Wirtschafts-und Verkehrsministeiriums Nordhein-westfalen

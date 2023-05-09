@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450116000922600031002088520010002390000367172016123020161230201041060222s1000------------r-----000-0-eng-d  aPlechl, Otto  aElektromechanische schaltungen und schaltgerate. eine einfuhrung in theorie und berechnung erganzt von w.rieder  aWien, Speinger, 1956, 224p  a12333

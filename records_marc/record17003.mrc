@@ -1,0 +1,1 @@
+00360nam--2200121-i-45000010010000000020009000100050015000190080041000341000015000752450102000902600039001928520007002310000399332016123020161230201042060222s1000------------r-----000-0-eng-d  aSaakov,E.O  aTeoria si calculul sistemelor selective rc. generatoare si filtre rc pentru oscilatii sinusoidale  aBucuresti, Ed.Tehnica, 1957. 270 P  a99

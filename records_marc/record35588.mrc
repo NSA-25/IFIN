@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450074000922600070001668520009002360000213342016123020161230201034060222s1000------------r-----000-0-eng-d  aHunt, August  aPhenomena in high-frequency  systems. first edition, sixth impression  aNew York And London, Mcgraw-hill Book Co., Inc., 1936, Xv + 642 P  a1268

@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000341000047000752450067001222600057001898520010002460000086812016123020161230201027060222s1000------------r-----000-0-eng-d  aBassler, Clayton G.And Silverstein, Robert  aSpectrometric identification of organic compounds. 2nd edition  aNew York, John Wiley And Sons, Inc., 1967 Vi + 256 P  a29657

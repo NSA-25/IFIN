@@ -1,0 +1,1 @@
+00351nam--2200109-i-45000010010000000020009000100050015000190080041000342450083000752600074001588520009002320000351162016123020161230201040060222s1000------------r-----000-0-eng-d  aOrganizarea fondului de carti si a cataloagelor in bibliotecile de masa. album  aBucuresti, Com.Pentru Asezamintele Culturale Din Rpr, 1952, 27 Planse  a5599

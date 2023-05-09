@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000022000752450112000972600039002098520009002480000358282016123020161230201040060222s1000------------r-----000-0-eng-d  aOppenhaimer, Carl  aGrundriss der anorganischen chemie. mit berucksichtigung der allgemeine chemie 15 te neubearbeitete auflage  aLeipzig, Thieme, 1934, Viii + 320p  a4611

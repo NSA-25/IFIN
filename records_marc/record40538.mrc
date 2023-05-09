@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450116000922600037002088520010002450000163832016123020161230201031060222s1000------------r-----000-0-eng-d  aNaudon,Andre  aEtude par diffusion centrale des rayons x des zone de guinier-preston  dans les alliages aluminium-argent.these  aPoitiers ,Universite,1971. 148 P  a78157

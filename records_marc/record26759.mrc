@@ -1,0 +1,1 @@
+00358nam--2200121-i-45000010010000000020009000100050015000190080041000342450102000752600027001777000022002048520010002260000301772016123020161230201038060222s1000------------r-----000-0-eng-d  aMolecular biology. an international series of monographs and textbooks. vol.4: molecular genetics  aLondon, Academic Press  aTaylor, Herbert J  a22459

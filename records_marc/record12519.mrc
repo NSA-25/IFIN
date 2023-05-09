@@ -1,0 +1,1 @@
+00358nam--2200109-i-45000010010000000020009000100050015000190080041000342450128000752600035002038520010002380000444202016123020161230201044060222s1000------------r-----000-0-eng-d  aPure and applied mathematics. vol.125: representations of -algebras, locally, compact groups and banach - algebraic bundles  aNew York, Academic Press, 1988  a13669

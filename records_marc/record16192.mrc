@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000014000752450114000892600040002038520010002430000407442016123020161230201042060222s1000------------r-----000-0-eng-d  aSchultz,W  aElektrische heizeinrichtungen fur industrie und gewerbe.4-te uberarbeitete auflage von obering. helmut gerber  aWurzburg, Vogel-verlag, 1958. 223 P  a15420

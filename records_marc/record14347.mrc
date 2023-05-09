@@ -1,0 +1,1 @@
+00366nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450090000952600050001858520009002350000425912016123020161230201043060222s1000------------r-----000-0-eng-d  aStaffansson,Eve  aStark-effekt am schwelbogenspektrum. eine experimentelle und theoretische unterschung  aLund, Lindstedts Univ.-bokhandel, 1943. 127 P  a5798

@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000341000022000752450088000972600051001858520010002360000480902016123020161230201046060222s1000------------r-----000-0-eng-d  aZuhlsdorf, Werner  aGrundlagen der steuerunstechnik fur die elektroautomatisierung von industrieanlagen  aBerlin, Veb Verlag Technik, 1955, 202p. Cu Fig  a11897

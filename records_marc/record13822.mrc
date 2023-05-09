@@ -1,0 +1,1 @@
+00357nam--2200109-i-45000010010000000020009000100050015000190080041000342450134000752600028002098520010002370000431172016123020161230201043060222s1000------------r-----000-0-eng-d  aSummary recommandations of the panel industrial applicatiions of radioisotopes with special reference to the developing countries  aVienna, Aiea, 1965. 7 P  a20853

@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000341000038000752450062001132600063001758520010002380000093152016123020161230201028060222s1000------------r-----000-0-eng-d  aBancila, Ioan Si Boldur, Gheorghe  aMetode si mijloace de luare a deciziilor in intreprinderi  aBucuresti, Ins.Central De Documentare Tehnica, 1970. 104 P  a32979

@@ -1,0 +1,1 @@
+00356nam--2200109-i-45000010010000000020009000100050015000190080041000342450130000752600033002058520008002380000371892016123020161230201041060222s1000------------r-----000-0-eng-d  aUnele prbleme in legatura cu rezistenta la oboseala a otelului luind in considerare influenta mediului activ. trad.din l.rusa  aBucuresti, I.D.T., 1957, 51p  a152

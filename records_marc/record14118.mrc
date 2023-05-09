@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000341000033000752450089001082600052001978520010002490000428202016123020161230201043060222s1000------------r-----000-0-eng-d  aPretorius, V., Haarhoff, P.C  aEfficiency parameters in linear chromatography and their use for analytical purposes  a/Pretoria, South African Chem.Inst., 1961/, 42p  a14186

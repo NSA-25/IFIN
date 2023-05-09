@@ -1,0 +1,1 @@
+00376nam--2200109-i-45000010010000000020009000100050015000190080041000342450134000752600047002098520010002560000183972016123020161230201032060222s1000------------r-----000-0-eng-d  aConference on hyperconjugation.indiana university, bloomington, 2-4 june 1958. conference co-chairmen v.j.shiner and e. campaigne  aLondon, Pergamon Press, 1959. Viii + 168 P  a14292

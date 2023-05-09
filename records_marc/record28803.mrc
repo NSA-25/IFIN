@@ -1,0 +1,1 @@
+00365nam--2200121-i-45000010010000000020009000100050015000190080041000342450084000752600045001597000029002048520010002330000281322016123020161230201037060222s1000------------r-----000-0-eng-d  aLehr-und handbucher der ingenieurwissenschaften. band 25: halbleiterbauelemente  aStuttgart, Birkhauser Verlag Basel, 1962  aGuggenbuhl, Walter /S.A.  a76220

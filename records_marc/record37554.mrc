@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000341000047000752450065001222600050001878520010002370000193682016123020161230201033060222s1000------------r-----000-0-eng-d  aForsyth, J.L., Dolby, J.L., Resnikoff, H.L  aComputerized library catalogs: their growth cost and utility  aCambridge, The M.I.T. Press, 1969. Ix + 164 P  a36494

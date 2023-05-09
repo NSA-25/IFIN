@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450093000962600049001898520010002380000358242016123020161230201040060222s1000------------r-----000-0-eng-d  aOppelt, Winfried  aKlaines handbuch technischer regelvorgange. dritte, neubearbeitet und erweiterte auflage  aWeinheim/Bergstr., Verlag Chemie, 1960, 632p  a15330

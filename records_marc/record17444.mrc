@@ -1,0 +1,1 @@
+00363nam--2200121-i-45000010010000000020009000100050015000190080041000341000030000752450082001052600046001878520008002330000394922016123020161230201042060222s1000------------r-----000-0-eng-d  aRogera,F. And Paul F.Kerr  aOptical mineralogy published formerly under the title thin-section mineralogy  aNew York, Mc Graw Hill, 1942. Xvi + 390 P  a606

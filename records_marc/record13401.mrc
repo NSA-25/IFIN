@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450094000932600052001878520010002390000435382016123020161230201044060222s1000------------r-----000-0-eng-d  aTaeger,Werner  aTransistoren taschenbuch. tabellen der in deutschland herstellten transistor-typen mit...  aBerlin, Fachverlag Schiele & Schon, 1963. 280 P  a18609

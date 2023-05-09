@@ -1,0 +1,1 @@
+00352nam--2200121-i-45000010010000000020009000100050015000190080041000341000015000752450059000902600035001494900046001840000074052016123020161230201027060222s1000------------r-----000-0-eng-d  aBrown, B.M  aThe mathematical theory of linear systems. 2nd edition  aLondon, Chapman And Hall, 1965  aAutomation And Control Engineering Series

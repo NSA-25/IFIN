@@ -1,0 +1,1 @@
+00361nam--2200109-i-45000010010000000020009000100050015000190080041000342450120000752600046001958520010002410000292552016123020161230201037060222s1000------------r-----000-0-eng-d  aKunstliche radioaktive isotope in physiologie, diagnostik und therapie.redigiert von h.schwiegk.mit 294 abbildungen  aBerlin, Springer-verlag, 1953. Xvi + 842p  a10031

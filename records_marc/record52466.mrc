@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000341000053000752450048001282600060001768520009002360000044532016123020161230201025060222s1000------------r-----000-0-eng-d  aBarasenkov, V.S., Blohintev, D.I., Barbasov, V.M  aNucleon structure and pion-pion interaction  aDubna, Joint Inst.For Nuclear Res., 1959. 12 P. + 2 Fig  a5763

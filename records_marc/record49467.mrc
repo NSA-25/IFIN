@@ -1,0 +1,1 @@
+00360nam--2200121-i-45000010010000000020009000100050015000190080041000341000038000752450029001132600034001424900062001760000074542016123020161230201027060222s1000------------r-----000-0-eng-d  aDawson, John W.And Niedenzu, Kurt  aBoron-nitrogen compounds  aBerlin, Springer-verlag, 1965  aAnorganische Und Allgemeine Chemie In Einzeldarstellungen

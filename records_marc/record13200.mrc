@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000340800010000752450097000852600063001828520010002450000437392016123020161230201044060222s1000------------r-----000-0-eng-d  a53.01  aStrukture und formen deer materie. dialektischer materialismus und moderne natureissenschaft  aBerlin, Veb Deutscher Verlag Der Wisenschaften, 1969, 559p  a31863

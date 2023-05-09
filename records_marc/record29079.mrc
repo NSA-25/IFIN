@@ -1,0 +1,1 @@
+00364nam--2200121-i-45000010010000000020009000100050015000190080041000341000031000752450092001062600034001988520010002320000278562016123020161230201037060222s1000------------r-----000-0-eng-d  aKruger, Gottfried Johannes  aProtonenrelaxation in eiseinkristallen und in gefrorenen losungen paramagnetische:ionen  aStuttgart, /F.Ed./, 1961. 72p  a17752

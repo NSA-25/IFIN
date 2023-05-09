@@ -1,0 +1,1 @@
+00379nam--2200109-i-45000010010000000020009000100050015000190080041000342450123000752600061001988520010002590000476972016123020161230201046060222s1000------------r-----000-0-eng-d  aWissenschaftliche photographie. erebnisse der int.konf.fur wissenschaftiliche photographie, koln 24-27. september 1956  aDermstadt, Verlag Dr.Othmar Helwich, 1958. Xviii + 723 P  a13689

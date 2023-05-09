@@ -1,0 +1,1 @@
+00364nam--2200109-i-45000010010000000020009000100050015000190080041000342450118000752600051001938520010002440000313312016123020161230201038060222s1000------------r-----000-0-eng-d  aMathematisch-naturwissenschaftlichebibliothek. vol.41: quantenmechanik und theorie des molekulbaues. mit 9 abbild  aLeipzig, B.G.Teubner Verlagsgesellschaft, 1968  a76903

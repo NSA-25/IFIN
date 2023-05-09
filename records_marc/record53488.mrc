@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450077000932600072001708520009002420000034302016123020161230201025060222s1000------------r-----000-0-eng-d  aClark, Walter  aPhotography by infrared. its principles and applications. second edition  aNew York,  John Wiley & Son , London ... /1946 Xvii + 472 P. + 2 Pl  a2682

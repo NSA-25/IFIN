@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450045000942600049001394900058001880000067292016123020161230201026060222s1000------------r-----000-0-eng-d  aClark, Frances  aAdvanced techniques in powder metallurgy  aNew York, Rowman And Littlefield, Inc., 1963  aMonograph Series On Metallurgy In Nuclear Tech Nology

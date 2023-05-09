@@ -1,0 +1,1 @@
+00340nam--2200109-i-45000010010000000020009000100050015000190080041000342450092000752600053001678520010002200000452692016123020161230201044060222s1000------------r-----000-0-eng-d  aTransistor i. a selection of papers describing research and development work of the rca  aPrinceton, N.J., Rca Laboratories, 1957, Vi+676p  a17008

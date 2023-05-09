@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450100000962600053001968520010002490000266752016123020161230201036060222s1000------------r-----000-0-eng-d  aKleeman, Manfred  aDarstellung und reaktionen von derivaten des 3 - amino - cyclobutanons. inaugural. dissertation  aTubingen, Eberhard-karls-universitat, 1964, 122p  a23423

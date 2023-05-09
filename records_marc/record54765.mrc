@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450107000962600042002038520010002450000021512016123020161230201024060222s1000------------r-----000-0-eng-d  aGoldschmidt, V.M  aGeochemische vertilungsgesetze der elemente. untersuchungen uber bau und eingenschaften von krystallen  aOslo, Jacob Dybwad, 1927, 1938. 156 P  a10242

@@ -1,0 +1,1 @@
+00366nam--2200121-i-45000010010000000020009000100050015000190080041000340800012000752450126000872600021002138520010002340000096592016123020161230201028060222s1000------------r-----000-0-eng-d  a002:658  aBazele informarii documentare tehnico-stiintif ice vol.v: organizarea stiintifica a activitatii d e informare documentara  aBucuresti, I.D.T  a34992

@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000341000035000752450104001102600036002148520009002500000500712016123020161230201048060222s1000------------r-----000-0-eng-d  aBaptidanov, L.N., Tarasov, V.I  aElektrooborudovanie elektricheskih stancii i podstancii. izdanie 2-e. ch. 3. releinaia zashchita ..  aMoskva, Gosenergoizdat, 1952-53  a2993

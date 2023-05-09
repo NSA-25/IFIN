@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450105000942600037001998520010002360000381022016123020161230201041060222s1000------------r-----000-0-eng-d  aBrack, G./S.A.  aReihe automatisierungstechnik. band 187: anwendung der mikroelektronik in der prozessautomatisierung  aBerlin, Veb Verlag Technik, 1979  a24753

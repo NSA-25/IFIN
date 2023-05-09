@@ -1,0 +1,1 @@
+00348nam--2200109-i-45000010010000000020009000100050015000190080041000342450080000752600047001554900036002020000035472016123020161230201025060222s1000------------r-----000-0-eng-d  aBurdon (r.s.), surface tension and the spreadi ng of liquids second edition  aCambridge,  At The University Press , 1949  aCambridge Monographs An Physics

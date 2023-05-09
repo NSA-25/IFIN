@@ -1,0 +1,1 @@
+00360nam--2200109-i-45000010010000000020009000100050015000190080041000342450119000752600046001948520010002400000031912016123020161230201025060222s1000------------r-----000-0-eng-d  aA.e.g. hilfsbuch fur elektrische licht und kraftanlagen mit uber 1100 bildern, zeichnun- gen und tafeln. 7 auflage  aEssen, Verlag W. Girardet, 1956 Xvi+716 P  a12749

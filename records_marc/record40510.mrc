@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450114000912600034002058520010002390000164112016123020161230201031060222s1000------------r-----000-0-eng-d  aCibaud,Remy  aContribution a l etude de la conductibilite des isolants liquides soumis au rayonnement gamma du radium.these  aBordeaux,Universite,1962. 88p  a78209

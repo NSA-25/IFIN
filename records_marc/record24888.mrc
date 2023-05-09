@@ -1,0 +1,1 @@
+00344nam--2200109-i-45000010010000000020009000100050015000190080041000342450108000752600041001838520010002240000320482016123020161230201039060222s1000------------r-----000-0-eng-d  aManuel des industries thermiques. chauffage - fumisterie - ventilation - conditionnement d`air. tome ii  aParis, Dunod, 1958,  Xii + 179+xxxvi  a14480

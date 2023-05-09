@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000341000013000752450101000882600058001898520009002470000401332016123020161230201042060222s1000------------r-----000-0-eng-d  aSalin Ph  aProposals for the experimental determination of neutron form factors from pion electroproduction  aBordeaux, Labor.De Ph.Theorique, 1963. 20 P. + 11 Fig  a4368

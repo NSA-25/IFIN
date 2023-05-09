@@ -1,0 +1,1 @@
+00346nam--2200109-i-45000010010000000020009000100050015000190080041000342450073000752600079001488520009002270000472742016123020161230201046060222s1000------------r-----000-0-eng-d  aWerkstoffprufung von metallen. bd.2. metallographische prufverfahren  aLeipzig, Veb Deutscher Verlag Fur Grundstoffindustrie, 1963, 620p. 401 Fig  a9737

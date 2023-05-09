@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450108000912600043001998520009002420000378082016123020161230201041060222s1000------------r-----000-0-eng-d  aRamsauer, C  aWirkungsquerschmitt der edelgase gegenuber langsamen elektronen. herausgegeben von e.bruche. mit 30 fig  aLeipzig, Geest & Portig, 1954, X + 90p  a3443

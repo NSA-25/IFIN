@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450094000962600057001908520010002470000398152016123020161230201042060222s1000------------r-----000-0-eng-d  aRoubault, Marcel  aGeologie de l`uranium. avec la collaboration de georges jurain. preface de francis perrin  aParis, Masson Et C-ie, 1958, Xi + 462p.+205 Fig.+2pl  a14270

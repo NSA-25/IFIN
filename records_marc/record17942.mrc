@@ -1,0 +1,1 @@
+00382nam--2200109-i-45000010010000000020009000100050015000190080041000342450160000752600027002358520010002620000389942016123020161230201042060222s1000------------r-----000-0-eng-d  aReview series. developments in the peaceful applications of nuclear energy: no.14: preparation et etalonnage des sources radioactives de reference. a.gandy  aVienna, I.A.E.A., 1961  a14678

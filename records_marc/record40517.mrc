@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000341000023000752450105000982600041002038520010002440000164042016123020161230201031060222s1000------------r-----000-0-eng-d  aFrankvoort, Walter  aDetermination of kinetic costants of liquid- phase reactions by adiabatic and diathermic calorimetry  aAmsterdam, Universiteit, 1977. 160 P  a78202

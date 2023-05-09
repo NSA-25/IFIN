@@ -1,0 +1,1 @@
+00343nam--2200109-i-45000010010000000020009000100050015000190080041000342450116000752600033001918520009002240000058732016123020161230201026060222s1000------------r-----000-0-eng-d  aAplicarea metodelor matematice in planificarea si analiza economica a intreprinderilor. (cercetare documentara)  aBucuresti, I.D.T., 1962 32 P  a8079

@@ -1,0 +1,1 @@
+00363nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450100000962600036001968520009002320000331112016123020161230201039060222s1000------------r-----000-0-eng-d  aMihul, Alexandru  aConsideratii asupra bazelor experimentale ale teoriei relativitatii restrinse si generalizate..  aIasi, Univ.Al.I.Cuza, 1956. 21p  a6528

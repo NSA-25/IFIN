@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000341000014000752450138000892600022002278520010002490000377482016123020161230201041060222s1000------------r-----000-0-eng-d  aQuinet, J  aCours elementaire de mathematique superieures. tome 2: developpements en serie. calcul des imaginaires. calcul differentiel et applic  aParis, Dund, 1959  a14497

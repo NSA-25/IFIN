@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000341000039000752450055001142600071001698520009002400000043692016123020161230201025060222s1000------------r-----000-0-eng-d  aBaptista Antonio M., Palacio Julio  aMecanismo de la captacion del yodo por el tiroides  aCoimbra, Assoc.Portug.Para O Progr.Das Cienc., 1957. 20 P. + 4 Fig  a5536

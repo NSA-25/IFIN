@@ -1,0 +1,1 @@
+00353nam--2200109-i-45000010010000000020009000100050015000190080041000342450097000752600061001728520010002330000328362016123020161230201039060222s1000------------r-----000-0-eng-d  aMethods for emission spectrochemical analysis.general practices nomenclature .third  edition  aPhiladelphia. Amer.Soc. For Testing Mat. 1960 Xvi + 685p  a19016

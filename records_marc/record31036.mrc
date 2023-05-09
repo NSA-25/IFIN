@@ -1,0 +1,1 @@
+00366nam--2200121-i-45000010010000000020009000100050015000190080041000342450108000752600033001837000018002168520010002340000258992016123020161230201036060222s1000------------r-----000-0-eng-d  aInternational series of monographs on analytical chemistry. vol.1. microanalysis by the ring oven techn  aLondon, Pergamon Press, 1961  aHerbert Weisz  a16056

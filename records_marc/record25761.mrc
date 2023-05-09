@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000342450109000752600037001847000018002218520010002390000311752016123020161230201038060222s1000------------r-----000-0-eng-d  aMathematics and its applications. vol.14: systems of partial differential equations and lie pseudogroups  aNew York, Gordon And Breac, 1978  aPommaret, J.F  a25374

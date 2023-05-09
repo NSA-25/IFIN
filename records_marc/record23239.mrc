@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000341000014000752450095000892600061001848520010002450000336972016123020161230201039060222s1000------------r-----000-0-eng-d  aMuller, F  aUber dynamische korrosionsversuche in wasser und dampf im zusammenhang mit der entwicklung  aWinterthur, Gebruder Sulzer, Aktiengesellschaft, 6p. F.A  a21531

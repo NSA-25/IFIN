@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450092000932600053001858520010002380000307592016123020161230201038060222s1000------------r-----000-0-eng-d  aMc Cue, J.J.G  aThe world of atoms.an introduction to physicacl science. with the assistance of k.sherk  aNew York, Ronald Press, 1956. Xiv + 659p. Cu Fig  a12063

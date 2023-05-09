@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450104000922600053001968520010002490000242262016123020161230201035060222s1000------------r-----000-0-eng-d  aGreil, Peter  aEinfluss der intergranularen glasphase auf die hochtemperaturgenschaften von siaionen. dissertation  aStuttgart, Institut Fur Metallkunde, 1982. 160 P  a70899

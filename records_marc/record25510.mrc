@@ -1,0 +1,1 @@
+00364nam--2200121-i-45000010010000000020009000100050015000190080041000341000024000752450085000992600051001848520007002350000314262016123020161230201038060222s1000------------r-----000-0-eng-d  aMckelvey, Vincent E  aSearch for uranium in the united states.a contribution to the geology of uranium  aWashington, U.S.Gov.Print.Off., 1955. Iv + 64p  a87

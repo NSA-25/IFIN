@@ -1,0 +1,1 @@
+00361nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450085000962600049001818520009002300000066772016123020161230201026060222s1000------------r-----000-0-eng-d  aBlaschke, Rudolf  aDarstellung von heterocyclen mit endocyclische r s-n-doppelbindung. dissertation  aStutggart, Technische Hochschule, 1963. 66 P  a9613

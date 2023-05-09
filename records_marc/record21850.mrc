@@ -1,0 +1,1 @@
+00363nam--2200109-i-45000010010000000020009000100050015000190080041000342450134000752600034002098520010002430000350862016123020161230201040060222s1000------------r-----000-0-eng-d  aOrganizarea stiintifica a informarii documentare. vol.3: sisteme mecanizate de inmagazinare, regasire si difuzare a informatiilor  aBucuresti, I.D.T., 1970, 102p  a32443

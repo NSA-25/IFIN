@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450022000912600061001134900082001740000021952016123020161230201024060222s1000------------r-----000-0-eng-d  aFick, Eugen  aSauermann, gunter  aQuantenstatistik Dynamischer Prozesse. Generelle Aspekte  aLeipzig, Akademische Verlagsgesellschaft, 1983. 119 P. Mit 26 Figuren Im Text

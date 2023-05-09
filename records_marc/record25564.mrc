@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000341000035000752450102001102600034002128520010002460000313722016123020161230201038060222s1000------------r-----000-0-eng-d  aMathieu, Jean Et Allais, Andre  aPrincipes de syntheses organique. introduction au mecanisme des reactions. preface de ch.dufraise  aParis, Masson, 1957, X + 598p  a13179

@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000341000030000752450080001052600056001858520010002410000307382016123020161230201038060222s1000------------r-----000-0-eng-d  aMcconkey Gladys, Prock  A  aTopics in chemical physics.based of the harvard lectures of peter j.w.debye  aAmsterdam, Elsevier Publishing Co., 1962. Vi + 277p  a18566

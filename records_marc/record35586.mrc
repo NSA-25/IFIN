@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000022000752450089000972600059001868520008002450000213362016123020161230201034060222s1000------------r-----000-0-eng-d  aHeising Raymond A  aQuartz crystals for electrical circuite. their design and manifacture. 2-nd printing  aNew York, D.Van Nostrand Company, Inc., 1947, X + 563p  a640

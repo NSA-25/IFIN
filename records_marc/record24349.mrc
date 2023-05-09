@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000342450079000752600065001544900020002198520010002390000325872016123020161230201039060222s1000------------r-----000-0-eng-d  aMethodes d`essai pour la determination de la resistance d`isolants solides  aGeneve, Commission Electrotechnique International, 1964. 21p  aPublication 167  a21938

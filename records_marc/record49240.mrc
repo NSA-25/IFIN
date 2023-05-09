@@ -1,0 +1,1 @@
+00366nam--2200109-i-45000010010000000020009000100050015000190080041000342450109000752600062001848520010002460000076812016123020161230201027060222s1000------------r-----000-0-eng-d  aCompte rendu des journees sur les reactions nucleaires par ions lourds 16, 17, 18 janvier 1964, bordeaux  aBordeaux, Laboratoires De Physique Nucleaires, 1964 185 P  a24237

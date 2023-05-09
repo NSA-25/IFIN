@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000342450096000752600055001714900024002268520010002500000305252016123020161230201038060222s1000------------r-----000-0-eng-d  aA list of british books and periodicals on atomic energy.compiled and revised by n.b.skeats  aHarwell, Atomic Energy Research Establ., 1961. 24p  aAera Reading List 3  aD1062

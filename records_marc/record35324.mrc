@@ -1,0 +1,1 @@
+00361nam--2200121-i-45000010010000000020009000100050015000190080041000341000033000752450065001082600057001738520009002300000215982016123020161230201034060222s1000------------r-----000-0-eng-d  aHuybrechts, M., Schonberg, M  aIonization at relativistic energies and polarization effects  aBruxelles, Centre De Physique De L`Univ., 1952, 44 P  a6221

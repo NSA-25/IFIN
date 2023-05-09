@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000341000039000752450079001142600043001938520010002360000271812016123020161230201036060222s1000------------r-----000-0-eng-d  aKofoed-hansen, O.And Winther, Aage  aOn the coupling constants in beta-decay. evidence from allowed transitions  aKobenhavn, Ejnar Munksgaard, 1953, 22p  a10174

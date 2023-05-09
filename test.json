@@ -1,0 +1,44 @@
+{
+  "$schema": "https://format.gbv.de/schema/avram/schema.json",
+  "fields": {
+    "IDN": "000056941",
+    "001": "000056941",
+    "002": "20221212",
+    "005": "20221212053319",
+    "008": "221212s1000------------r-----000-0-rum-d",
+    "040": {
+      "a": "IFIN-HH"
+    },
+    "041": {
+      "a": "rum"
+    },
+    "1001": {
+      "L": "000014165",
+      "a": "Hulubei, Horia"
+    },
+    "2451": {
+      "a": "Curs de structura materiei. Vol. 2",
+      "c": "Horia Hulubei"
+    },
+    "260": {
+      "a": "Magurele",
+      "b": "Editura Horia Hulubei",
+      "c": "2022"
+    },
+    "300": {
+      "a": "118 p."
+    },
+    "852": {
+      "a": "82870",
+      "c": "HH"
+    },
+    "CAT": {
+      "a": "SYS",
+      "c": "20221212",
+      "h": "053319"
+    },
+    "FMT": "BK",
+    "LDR": "-----nam--22------u-4500",
+    "LNG": "rum"
+  }
+}

@@ -1,0 +1,1 @@
+00357nam--2200109-i-45000010010000000020009000100050015000190080041000342450101000752600063001768520008002390000035942016123020161230201025060222s1000------------r-----000-0-eng-d  aThe cathode-ray tube and typical application. a non-technical discussion of the cathode-ray tube  aClifton, N.J.,Allen B.Dumont Labor.,Inc.,1984. Viii + 63 P  a837

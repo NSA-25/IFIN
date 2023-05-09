@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000340800010000752450129000852600035002148520010002490000352322016123020161230201040060222s1000------------r-----000-0-eng-d  a537.8  aPaulilectures on physics. vol.4: statistical mechanics. translated by s.margulies and h.r.lewis. foreword victor f.weisskopf  aCambridge, The Mit Press, 1973  a77669

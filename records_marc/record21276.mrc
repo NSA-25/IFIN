@@ -1,0 +1,1 @@
+00366nam--2200121-i-45000010010000000020009000100050015000190080041000342450104000752600031001797000024002108520010002340000356602016123020161230201040060222s1000------------r-----000-0-eng-d  aOrganic chemistry. a series of monographs. vol.22: catenanes, rotaxanes and knots. gottfried schill  aNew York, Acad.Press, 1971  aBlomquist, Alfred T  a21865

@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000340800010000751000021000852450084001062600070001900000271682016123020161230201036060222s1000------------r-----000-0-eng-d  a11901  aKing, Ronold W.P  aThe theory of linear antennas with charts and tables for practical applications  aCambridge-mass, Harvard University Press, 1956. Xxiv+944p. Cu Fig

@@ -1,0 +1,1 @@
+00366nam--2200121-i-45000010010000000020009000100050015000190080041000342450098000752600035001734900014002087000022002220000140032016123020161230201030060222s1000------------r-----000-0-eng-d  aDevelopment in earth and planetary sciences: vol.2: current research in earthquake prediction  aTokyo, D.Reidel Publ.Co., 1980  aXiii+383p  aTsuneji, Rikitake

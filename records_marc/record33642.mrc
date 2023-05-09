@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000341000022000752450094000972600046001918520010002370000232802016123020161230201035060222s1000------------r-----000-0-eng-d  aGreffe,Jean-louis  aContribution a la theorie statistique des interactions dipolaires en phase liquide. these  aNancy, Universite De Nancy I., 1971. 109p  a38238

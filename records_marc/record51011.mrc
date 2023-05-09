@@ -1,0 +1,1 @@
+00359nam--2200121-i-45000010010000000020009000100050015000190080041000341000024000752450104000992600023002034900011002260000059092016123020161230201026060222s1000------------r-----000-0-eng-d  aCousin, B., Levy, R  aMethodes selectionnees de microanalyse organique quantitative vol.1: le laboratoire de microanalyse  aParis, Dunod, 1961  aX+122p

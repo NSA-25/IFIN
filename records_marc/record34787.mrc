@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450099000932600054001928520010002460000221352016123020161230201034060222s1000------------r-----000-0-eng-d  aHuntress, E.H  aA brief introduction to the use of beilstein`s handbuch der organischen chemie. second edition  aNew York, John Wiley & Sons, Inc., 1960, X + 44 P  a18023

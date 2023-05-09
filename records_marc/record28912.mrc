@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450088000932600062001818520010002430000280232016123020161230201037060222s1000------------r-----000-0-eng-d  aLeger, Michel  aEtude de la mesure de l`echauffement de l`air lors d`une explosion nucleaire. these  aParis, La Faculte Des Sciences De L`Universite, 1962, 15p  a22837

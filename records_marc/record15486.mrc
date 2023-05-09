@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000341000040000752450090001152600041002058520010002460000414512016123020161230201043060222s1000------------r-----000-0-eng-d  aShera,Jesse  H.A.Kent And J.W.Perry  aDocumentation in actiion. based on 1956 conf.on documentation at western reserve univ  aNew York, Reinhold, 1956. Xv + 471 P  a13109

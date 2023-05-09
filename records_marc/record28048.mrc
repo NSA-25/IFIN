@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000342450108000752600035001834900032002188520010002500000288882016123020161230201037060222s1000------------r-----000-0-eng-d  aEssais et controles non destructifs dans les domaines de la metallurgie et de la technologie nucleaires  aSaclay, C.E.N., 1969. X + 383p  a12e Colloque De Metallurgie  a35197

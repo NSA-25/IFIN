@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000341000022000752450107000972600032002048520010002360000162352016123020161230201031060222s1000------------r-----000-0-eng-d  aRappanello,Daniel  aLes instabilites magnetiques des supraconducte urs durs de seconde esoece et leurs consequen ces.these  aOrsay,Universite,1972. 150p  a77982

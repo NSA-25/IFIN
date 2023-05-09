@@ -1,0 +1,1 @@
+00361nam--2200121-i-45000010010000000020009000100050015000190080041000341000014000752450100000892600040001898520010002290000395702016123020161230201042060222s1000------------r-----000-0-eng-d  aRose, Chr  aIndustrielles fernsehen. praxis und planung in wissenschaft, technik, wirtschaft und verwaltung  aMunchen, R.Oldenboourg, 1959, P.Dif  a15834

@@ -1,0 +1,1 @@
+00372nam--2200109-i-45000010010000000020009000100050015000190080041000342450145000752600032002208520010002520000349772016123020161230201040060222s1000------------r-----000-0-eng-d  aNouveau traite de chimie minerale. publie sous la direction de paul pascal. t.3: rubidium, cesium, francium, generalites, cuivre, argent, or  aParis, Masson Et C-ie, 1956  a11900

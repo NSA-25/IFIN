@@ -1,0 +1,1 @@
+00373nam--2200109-i-45000010010000000020009000100050015000190080041000342450150000752600028002258520010002530000351032016123020161230201040060222s1000------------r-----000-0-eng-d  aOrganisations scientifiques internationales. catalogue precede d`une introduction. quelques aspects de la cooperation scientifique internationale  aParis, Ocde, 1965, 287p  a23974

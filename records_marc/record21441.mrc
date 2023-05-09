@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000024000752450100000992600044001998520010002430000354952016123020161230201040060222s1000------------r-----000-0-eng-d  aMunzinger Friedrich  aAtomkraft. eine studie uber die technischen und wirtschaftlichen aussichten fon atomkraftwerken  aBerlin, Springer-verlag, 1956, Vi + 93p  a10930

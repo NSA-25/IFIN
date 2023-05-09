@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000341000036000752450063001112600031001744900040002050000095902016123020161230201028060222s1000------------r-----000-0-eng-d  aDewitt, D.P.And Touloukian, Y.S  aThermal radiative properties. metallic elements and alloys  aNew York, Ifi/Plenum, 1970  aThermophysical Properties Of Matter

@@ -1,0 +1,1 @@
+00371nam--2200109-i-45000010010000000020009000100050015000190080041000342450104000752600072001798520010002510000072832016123020161230201027060222s1000------------r-----000-0-eng-d  aCommutateurs rotatifs (a faible intensite nomi nale) commutateurs rotatifs a deux trous de fixation  aGeneve, Commission Electrotechnique Internatio Nale, 1962-1963 19 P  a21938

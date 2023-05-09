@@ -1,0 +1,1 @@
+00368nam--2200109-i-45000010010000000020009000100050015000190080041000342450134000752600040002098520009002490000063472016123020161230201026060222s1000------------r-----000-0-eng-d  aCatalog de preturi unitare pe articole de devi z pentru lucrari de reparatii la puturi forate pentru alimentari cu apa. rpfj-1963  aBucuresti, Ed. Tehnica, 1963. 363 P  a8799

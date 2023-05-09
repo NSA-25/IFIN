@@ -1,0 +1,1 @@
+00355nam--2200121-i-45000010010000000020009000100050015000190080041000341000029000752450032001042600042001364900055001780000056792016123020161230201026060222s1000------------r-----000-0-eng-d  aClarke, K.K., Joyce, M.V  aTransistor circuit analysis  aLondon, Addison-wesley Publ.Co., 1961  aAddison-wesley Series In The Engineering Scien Ces

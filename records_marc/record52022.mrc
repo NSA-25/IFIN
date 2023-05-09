@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450075000942600068001698520010002370000048982016123020161230201026060222s1000------------r-----000-0-eng-d  aBoucher Paul E  aFundamentals of photography with laboratory experiments. third edition  aPrinceton, New Jersey, D.Van Nostrand Co.1958 Xii +473 + Liii P  a14864

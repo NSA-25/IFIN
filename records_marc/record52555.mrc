@@ -1,0 +1,1 @@
+00356nam--2200097-i-45000010010000000020009000100050015000190080041000342450150000752600033002250000043642016123020161230201025060222s1000------------r-----000-0-eng-d  aClasificarea zecimala pentru biblioteci, servi cii de documentare si fisiere individuale de s tudii, + tabelele de autori + tabela prescurtata ..  aBucuresti, Edit.C.G.M., 1952

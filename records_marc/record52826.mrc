@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450109000942600035002038520009002380000040922016123020161230201025060222s1000------------r-----000-0-eng-d  aBaklanova, K.A  aMetode de analiza rapida a minereurilor de fie r, nikel si mangan. (tradus pentru uzul intrep rinderlor)  aBucuresti, I.D.T. 24 P.+ Erata  a3026

@@ -1,0 +1,1 @@
+00351nam--2200109-i-45000010010000000020009000100050015000190080041000342450106000752600050001818520010002310000222222016123020161230201034060222s1000------------r-----000-0-eng-d  aHandbook of scientific instruments and apparatus. 47 th annual exhibition of the inst.of physical soc  aLondon, The Inst.Of Physics, 1963. Xx + 224 P  a18205

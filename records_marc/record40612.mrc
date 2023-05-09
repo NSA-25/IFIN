@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450115000952600040002108520010002500000163092016123020161230201031060222s1000------------r-----000-0-eng-d  aMedellec,Pierre  aEtude de couches minces supraconductrices par effet tunnel(resonances geometriques et effet de pression).these  aParis,Universite,1975. 95 P.+annexe  a78021

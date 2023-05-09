@@ -1,0 +1,1 @@
+00314nam--2200097-i-45000010010000000020009000100050015000190080041000342450091000752600050001660000062602016123020161230201026060222s1000------------r-----000-0-eng-d  aCatalogul colectiv al revistelor stiintifice s traine intrate in bibliotecile din cluj  aCluj, Universitatea Babes-bolyai, 1961. 463 P

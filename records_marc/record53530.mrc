@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000341000047000752450084001222600026002064900014002320000033882016123020161230201025060222s1000------------r-----000-0-eng-d  aDupont, J., Charabat, E., Pillet, L. /S.A.  aLes huiles esentielles et leurs principaux constituants. preface de m.e.grimaux  aParis, Beranger, 1899  aXii+1002p

@@ -1,0 +1,1 @@
+00371nam--2200109-i-45000010010000000020009000100050015000190080041000342450119000752600057001948520010002510000425812016123020161230201043060222s1000------------r-----000-0-eng-d  aThe stabilization of silicone lubricating liquid above 200  c. part 2:iron,copper,cerium and other metal compounds  aWashington, U.S.Atomic Energy Commission, 1961. 25 P  a16603

@@ -1,0 +1,1 @@
+00366nam--2200121-i-45000010010000000020009000100050015000190080041000342450069000752600056001447000034002008520010002340000011552016123020161230201024060222s1000------------r-----000-0-eng-d  aReactor physics in the resonance and thermal regions.proceedings  aCambridge, Mass., The M.I.T.Press, 1966. Xi + 452 P  aGoodjohn,A.J., Pomraning, G.C  a25126

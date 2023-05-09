@@ -1,0 +1,1 @@
+00372nam--2200121-i-45000010010000000020009000100050015000190080041000341000028000752450096001032600041001998520010002400000162512016123020161230201031060222s1000------------r-----000-0-eng-d  aGhattas,Samir Faragalla  aPhysique des reacteurs application de la methode de synthese a la cinetique spatiale. these  aOrsay,Universite,1975. 68 P.+ 32 Fig  a78009

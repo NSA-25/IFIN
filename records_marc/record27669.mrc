@@ -1,0 +1,1 @@
+00347nam--2200109-i-45000010010000000020009000100050015000190080041000342450105000752600047001808520010002270000292672016123020161230201037060222s1000------------r-----000-0-eng-d  aKunstliche radioaktive isotope in physiology diagnostik und therapie.hrsg.von h.schwiegk und f.turba  aBerlin, Spronger-verlag, 1961. Xxx + 1248p  a17079

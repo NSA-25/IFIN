@@ -1,0 +1,1 @@
+00380nam--2200109-i-45000010010000000020009000100050015000190080041000342450131000752600054002068520010002600000191992016123020161230201033060222s1000------------r-----000-0-eng-d  aFonds national de la recherche scientifique. rapport sur l`activite du fonds national au cours de l`annee academique 1968-1969  aBruxelles, Imprimerie Clarence Denis, 1969. 255 P  a26933

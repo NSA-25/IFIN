@@ -1,0 +1,1 @@
+00364nam--2200121-i-45000010010000000020009000100050015000190080041000342450065000752600046001404900046001868520010002320000003192016123020161230201024060222s1000------------r-----000-0-eng-d  aGermanium.ergazungsband.achte vollig neu bearbeitete auflage  aWeinheim/Bergstr., Verlag Chemie.   576 P  aGmelins Handbuch Der Anorganischen Chemie  a15314

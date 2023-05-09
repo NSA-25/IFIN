@@ -1,0 +1,1 @@
+00363nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450107000912600034001988520009002320000360732016123020161230201040060222s1000------------r-----000-0-eng-d  aOlah, Georg  aEinfuhrung in die theoretische organische chemie. bd.i: theoretische grundlagen der organischen chemie  aBerlin, Akademie-verlag, 1960  a7557

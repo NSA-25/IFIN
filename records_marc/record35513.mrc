@@ -1,0 +1,1 @@
+00374nam--2200121-i-45000010010000000020009000100050015000190080041000341000049000752450066001242600053001908520009002430000214092016123020161230201034060222s1000------------r-----000-0-eng-d  aIonchin, P.A., Pantiusin, V.S., Smirnov, V.A  aCulegere de probleme si exercitii din electrotehnica generala  aBucuresti,Editura Energetica De Stat, 1954. 389p  a3113

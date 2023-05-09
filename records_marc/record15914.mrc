@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000342450072000752600051001474900048001988520010002460000410222016123020161230201042060222s1000------------r-----000-0-eng-d  aSelected values of properties of hydrocarbons and related compounds  aCollege Station, Texas, Texas A.& M.Univ.,1965  aAmerican Petroleum Inst.Research Project 44  a24214

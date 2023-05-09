@@ -1,0 +1,1 @@
+00354nam--2200109-i-45000010010000000020009000100050015000190080041000342450107000752600053001828520009002350000260772016123020161230201036060222s1000------------r-----000-0-eng-d  aInsttructiuni 181-63 pentru verificarea aparatelor de incercarea microduritatii cu piramida de diamant  aBucuresti, Oficiul De Stat Pt.Metrol., 1964. 30p  a7481

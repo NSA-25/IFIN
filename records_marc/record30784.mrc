@@ -1,0 +1,1 @@
+00372nam--2200121-i-45000010010000000020009000100050015000190080041000342450116000752600033001917000016002248520010002400000261512016123020161230201036060222s1000------------r-----000-0-eng-d  aInternational series of monographs in electrical engineering. vol. 3. power systems engineering and mathematics  aOxford, Pergamon Press, 1972  aKnight, U.G  a41949

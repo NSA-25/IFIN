@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000342450117000752600033001927000020002258520010002450000259012016123020161230201036060222s1000------------r-----000-0-eng-d  aInternational series of monographs on analytical chemistry. vol.9. analytical chemistry of the actinide elements  aLondon, Pergamon Press, 1961  aAlfred J. Moses  a16056

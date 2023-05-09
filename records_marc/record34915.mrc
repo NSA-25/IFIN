@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000342450119000752600040001947000014002348520009002480000220072016123020161230201034060222s1000------------r-----000-0-eng-d  aHochfrequenzspektroskopie. tagung der physikalischen gesellschaft in der ddr vom 31 marz - 2 april 1960 in leipzig  aBerlin, Akademie-verlag, 1961, 240p  aLosche, A  a8044

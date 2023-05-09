@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000341000033000752450092001082600035002008520010002350000500362016123020161230201048060222s1000------------r-----000-0-eng-d  aBazaeianc,N.O., Nikolaev,M.N  aAnizotropiia uprugogo rasseianiia neitronov. svodka eksperimentalnyh dannyh i ih analiz  aMoskva, Atomizdat, 1972. 233 S  a39053

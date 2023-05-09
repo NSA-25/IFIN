@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000342450078000752600043001534900033001967000017002290000262102016123020161230201036060222s1000------------r-----000-0-eng-d  aInternational series of monographs in natural phylosophy. vol. 12. renner  aCurret Algebras And Their Applications  aOxford, Pergamon Press, 1968  aHaar, D. Ter

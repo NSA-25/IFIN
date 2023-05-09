@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000341000029000752450087001042600050001918520010002410000183602016123020161230201032060222s1000------------r-----000-0-eng-d  aEngel,H., Thielheim, K.O  aKernenergie-tehnik. einfuhrung in die physik und technik der kernenergie-erzeugung  aMunchen, Verlag Moderne Industrie, 1960. 300p  a11576

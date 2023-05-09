@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000342450115000752600033001904900024002238520012002470000127552016123020161230201029060222s1000------------r-----000-0-eng-d  aData for protection against ionizing radiation from external sources. adopted by the commission in april, 1971  aOxford, Pergamon Press, 1976  aIcrp Publication 21  a614.876

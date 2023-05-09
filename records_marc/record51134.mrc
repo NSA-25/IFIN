@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000038000752450082001132600048001958520010002430000057862016123020161230201026060222s1000------------r-----000-0-eng-d  aAurand Karl, Delius I., Schmier H  aBestimung der mit niederschlag und staub den boden zugefuhrten radioaktivitat  aStuttgart, Gustav Fischer Verlag, 1960 31 P  a17127

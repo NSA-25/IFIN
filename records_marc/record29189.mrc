@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000341000042000752450083001172600049002008520010002490000277462016123020161230201036060222s1000------------r-----000-0-eng-d  aKrivan, V., Tolgyessy, J.And Varga, S  aNuclear analytical chemistry. ii: radioactive indicators in chemmical analysis  aBaltimore, University Park Press, 1971, 436p  a42623

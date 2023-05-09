@@ -1,0 +1,1 @@
+00359nam--2200121-i-45000010010000000020009000100050015000190080041000341000027000752450063001022600034001654900038001990000030772016123020161230201025060222s1000------------r-----000-0-eng-d  aDestouches, Jean-Louis  aLa quantification en theorie fonctionnelle des corpuscules  aParis, Gauthier-villars, 1956  aLes Grands Problemes Des Sciences

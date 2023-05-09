@@ -1,0 +1,1 @@
+00350nam--2200109-i-45000010010000000020009000100050015000190080041000342450092000752600063001678520010002300000310572016123020161230201038060222s1000------------r-----000-0-eng-d  aManual of analytical methods for the determination of uranium and thorium in their ores  aWashington, U.S.Atomic Energy Commission, 1955, Viii + 51p  a10780

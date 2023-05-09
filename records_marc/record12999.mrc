@@ -1,0 +1,1 @@
+00372nam--2200121-i-45000010010000000020009000100050015000190080041000342450080000752600061001557000024002168520010002400000439402016123020161230201044060222s1000------------r-----000-0-eng-d  aThe lloyd william taylor manual of adv.undergraduate experiments in physics  aReading/Mass.,Akddison-wesley Publ.Co.,1959. Xxv + 550 P  aThomasbenjaminbrown  a11541

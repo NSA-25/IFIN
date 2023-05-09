@@ -1,0 +1,1 @@
+00328nam--2200109-i-45000010010000000020009000100050015000190080041000341000015000752450084000902600044001740000026462016123020161230201025060222s1000------------r-----000-0-eng-d  aBohr, Aage  aThe coupling of nuuclear surface oscilations t o the motion individual nucleons  aKobenhavn, Ejnar Munksgaard, 1952. 40 P

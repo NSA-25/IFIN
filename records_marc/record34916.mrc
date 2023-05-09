@@ -1,0 +1,1 @@
+00368nam--2200109-i-45000010010000000020009000100050015000190080041000342450121000752600053001968520009002490000220062016123020161230201034060222s1000------------r-----000-0-eng-d  aInformation theory, statistical decision, functions, random processes. transactions of the second prague conf., 1959  aPrague, Czehoslovak Acad.Of Sciences, 1960. 843p  a8037

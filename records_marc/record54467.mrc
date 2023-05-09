@@ -1,0 +1,1 @@
+00366nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450015000922600073001074900064001800000024492016123020161230201025060222s1000------------r-----000-0-eng-d  aFewkes, J. H  aYarwood, j  aElectricity, Magnetism And Atomic Physics. Electricity And Magnetism  aLondon, Univ. Tutorial House, 1956. Vii + 768 P. Cu Fig.(1)

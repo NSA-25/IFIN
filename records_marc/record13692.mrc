@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450093000962600057001898520010002460000432472016123020161230201043060222s1000------------r-----000-0-eng-d  aS Utton George P  aRocket propulsion elements. an introduction to the engineering of rockets. third edition  aNew York, John Wiley And Sons Inc.,1963. Vii + 464 P  a18829

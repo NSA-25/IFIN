@@ -1,0 +1,1 @@
+00380nam--2200121-i-45000010010000000020009000100050015000190080041000341000025000752450054001002600094001548520010002480000021242016123020161230201024060222s1000------------r-----000-0-eng-d  aFranz, K., Lassen, H  aAntennen und ausbreitung.2-te verbesserte auflage  aBerlin, Springer, 1956. Viii + 332 P. Cu Fig (Lehrbuche Der Drahtlosen Nachrichtentechnik  a11892

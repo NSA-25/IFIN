@@ -1,0 +1,1 @@
+00380nam--2200121-i-45000010010000000020009000100050015000190080041000340800013000752450129000882600031002178520010002480000267282016123020161230201036060222s1000------------r-----000-0-eng-d  a66.046.8  aInstructiuni tehnice pt.construirea, repararea, instalarea, funcionarea so controlul autoclavelor cu foc direct. ed.oficiala  aBucuresti, Esip, 1966. 11p  a25615

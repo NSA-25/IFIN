@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450123000932600031002168520010002470000162502016123020161230201031060222s1000------------r-----000-0-eng-d  aGalatry,Louis  aContributions a l interpretation des spectres d absorption infrarouges des melanges liquides et gazeux comprimes.these  aParis,Universite,1958. 48p  a77944

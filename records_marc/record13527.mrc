@@ -1,0 +1,1 @@
+00361nam--2200109-i-45000010010000000020009000100050015000190080041000342450111000752600055001868520010002410000434122016123020161230201044060222s1000------------r-----000-0-eng-d  aSystemes d`enregistrement et de lecture sur bandes magnetiques:dimensions et caracteristiques. 2-e edition  aGeneve, Commision Electrotechnique Int.,1962. 33 P  a21938

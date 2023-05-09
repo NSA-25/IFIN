@@ -1,0 +1,1 @@
+00364nam--2200121-i-45000010010000000020009000100050015000190080041000341000023000752450098000982600036001968520010002320000242762016123020161230201035060222s1000------------r-----000-0-eng-d  aHusebye, Eystein S  aOn noyaktigheten av gravimetrisk dybde bestemmelse av et myromrade i fyllingsdalen ved bergen  aBergen, Universitet, 1963, 16 P  a48063

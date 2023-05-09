@@ -1,0 +1,1 @@
+00357nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450094000932600039001874900009002260000070602016123020161230201027060222s1000------------r-----000-0-eng-d  aClaassen, H.A  aChronologische bibliographie der mhd-experimen te mit flussigen metallen und elektrolyten  aJulich, Kernforschungsanlage, 1964  a15 P

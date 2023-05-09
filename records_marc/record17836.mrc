@@ -1,0 +1,1 @@
+00380nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450104000952600050001998520009002490000391002016123020161230201042060222s1000------------r-----000-0-eng-d  aRienitz Joachim  aUber den einfluss der teildurchlassigen schichten auf den vikungsgrad von zweistrahlinterferometern  aBerlin, Akademie Verlag, 1961. 46 P. + 35 Fig  a8156

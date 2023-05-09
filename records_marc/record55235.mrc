@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000341000039000752450077001142600047001918520010002380000016812016123020161230201024060222s1000------------r-----000-0-eng-d  aGofman, John W., Tamplin, Arthur R  aPopulation control through nuclear pollution. foreword by paul r.ehrlich  aChicago, Nelson-hall Comp.1970. Xi + 242 P  a36137

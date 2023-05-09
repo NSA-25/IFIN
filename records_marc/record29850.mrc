@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450106000922600047001988520010002450000270852016123020161230201036060222s1000------------r-----000-0-eng-d  aKoch, Jurgen  aUber darstellung und eigenschaften von derivaten des 4-amino-azetidin-2-ons. inaugural - dissertation  aTubingen, Eberhard-karls-univ., 1965, 110p  a23420

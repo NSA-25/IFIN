@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000340800015000752450074000902600085001648520010002490000233102016123020161230201035060222s1000------------r-----000-0-eng-d  a007:338.04  aIndrumar metodologic privind rationalizarea circulatiei informatiilor  aBucuresti, Centrul De Documentare Si Publicatii Al Ministerulu Muncii, 1972. 67p  a39118

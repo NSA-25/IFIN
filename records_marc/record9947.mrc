@@ -1,0 +1,1 @@
+00380nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450085000962600069001818520008002500000469922016123020161230201046060222s1000------------r-----000-0-eng-d  aWeatherburn, C.E  aAn inntroduction to riemannian geometry and the tensor calculus. /first edition/  aCambridge, ``Univ.Press``, /1938 (Retiparire Din 1950)/, Xi+191p  a930

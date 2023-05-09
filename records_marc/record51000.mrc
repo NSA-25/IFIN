@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000027000752450094001022600047001964900014002430000059202016123020161230201026060222s1000------------r-----000-0-eng-d  aCote, A.J., Oakes, J.B  aLinear vacuum-tube and transistor circuits. a unified treatment of linear active circuits  aNew York, Mcgraw-hill Book Co., Inc., 1961  aXxvi+411p

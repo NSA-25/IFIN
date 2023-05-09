@@ -1,0 +1,1 @@
+00368nam--2200109-i-45000010010000000020009000100050015000190080041000342450124000752600049001998520010002480000185782016123020161230201032060222s1000------------r-----000-0-eng-d  aDeuxieme congres de l association francaise de calcul et de traitement de l information afcalti, paris , 18-20 oct.1961  aParis, Gauthier-villars Et C-ie, 1962. 523 P  a18624

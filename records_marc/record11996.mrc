@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450113000932600039002068520009002450000449432016123020161230201044060222s1000------------r-----000-0-eng-d  aTjagunov, G.A  aElektronen-und ionenrohren. elektrische entladungen im hochvakuum in gasen und dampfen. deutsche ubersetzung  aHalle, Veb, Knapp, 1954, Viii+285p  a4893

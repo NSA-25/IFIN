@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450120000922600035002128520009002470000495012016123020161230201047060222s1000------------r-----000-0-eng-d  aAlihanov,A.I  aIadernaia fizika. trudy vtoroi mezhdunarodnogo konferencii po mirnomu ispolzovaniiu fatomnoi energii, zheneva 1958.  aMoskva, Atomizdat, 1959. 552 S  a5950

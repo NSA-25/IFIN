@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000342450111000752600046001867000018002328520010002500000243202016123020161230201035060222s1000------------r-----000-0-eng-d  aB.i. hochschultaschenbucher. phisikalische formelsammlung. band 28: mechanik stromungslehre elektrodynamik  aMannheim, Bibliographische Institut, 1962  aWalter Weizel  a75224

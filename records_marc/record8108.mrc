@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000342450091000752600049001664900032002158520010002470000488322016123020161230201047060222s1000------------r-----000-0-eng-d  aLa radiazioni ionizzanti per la conservazione degli alimenti. conescenze e prospettive  aRoma, La Docum.Italiana Editrice, 1961, 131p  aCollana Din Doc.Scientifici  a16682

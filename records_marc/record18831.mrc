@@ -1,0 +1,1 @@
+00339nam--2200109-i-45000010010000000020009000100050015000190080041000342450107000752600037001828520010002190000381052016123020161230201041060222s1000------------r-----000-0-eng-d  aReihe automatisierungstechnik. band 207: kleines lexikon der mikroelektronik. von eugen-georg worschni  aBerlin, Veb Verlag Technik, 1985  a24753

@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450093000962600057001898520010002460000063762016123020161230201026060222s1000------------r-----000-0-eng-d  aBenson, Sidney W  aChemical calculation.an introduction to the use of mathematics in chemistry. second edit  aNew York, John Wiley & Sons, Inc., 1963. Xii + 254 P  a18854

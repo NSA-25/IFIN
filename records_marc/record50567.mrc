@@ -1,0 +1,1 @@
+00364nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450097000942600039001914900012002300000063532016123020161230201026060222s1000------------r-----000-0-eng-d  aDuval, Clement  aInorganic thermogravimetric analysis. second and revised edition. translated from the french  aAmsterdam, Elsevier Publ.Co., 1963  aXv+722p

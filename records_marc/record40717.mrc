@@ -1,0 +1,1 @@
+00372nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450115000952600030002108520010002400000162042016123020161230201031060222s1000------------r-----000-0-eng-d  aBarland,Maurice  aRecherches sur la photoconductibilite des halophosphates de calcium et des sulfures electrorenforcateurs.these  aLyon,Universite,1959. 73p  a77945

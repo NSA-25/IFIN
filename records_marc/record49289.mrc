@@ -1,0 +1,1 @@
+00345nam--2200109-i-45000010010000000020009000100050015000190080041000342450115000752600035001908520010002250000076322016123020161230201027060222s1000------------r-----000-0-eng-d  aActes de la 3-eme conference internationale de recherche operationelle, presentes par g. kreweras et morlat, g  aParis, Dunod, 1964 Xiv + 952 P  a25983

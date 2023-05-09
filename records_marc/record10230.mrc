@@ -1,0 +1,1 @@
+00336nam--2200109-i-45000010010000000020009000100050015000190080041000342450112000757000029001878520010002160000467092016123020161230201046060222s1000------------r-----000-0-eng-d  aModule des fibres stables sur les corbbes algebriques. notes de l`ecole normale superieure. printemps, 1983  aVerdier,Jean-louis,/S.A.  a70155

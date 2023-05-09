@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000022000752450101000972600034001984900021002320000029572016123020161230201025060222s1000------------r-----000-0-eng-d  aDijksterhuis, E.J  aDie mechanisierung des weltbildes. ins deutsche ubertragen von helga habicht. mit 47 abbildungen  aBerlin, Springer-verlag, 1956  aViii+594p.Cu Fig

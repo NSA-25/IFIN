@@ -1,0 +1,48 @@
+{
+  "IDN": "000056937",
+  "001": "000056937",
+  "002": "20201028",
+  "005": "20201028082121",
+  "008": "201028s1000------------r-----000-0-eng-d",
+  "040": {
+    "a": "IFIN-HH"
+  },
+  "041": {
+    "a": "eng"
+  },
+  "1001": {
+    "L": "000031644",
+    "a": "Trache, Livius"
+  },
+  "24510": {
+    "a": "Exotic Nuclei and Nuclear/Particle Astrophysics (VII). Physics with Small Accelerators.",
+    "c": "Livius Trache, Alexandra Spiridon"
+  },
+  "260": {
+    "a": "Melville , New York",
+    "b": "AIP",
+    "c": "2019"
+  },
+  "300": {
+    "a": "pag.dif."
+  },
+  "500": {
+    "a": "Donatie Misicu Serban"
+  },
+  "7001": {
+    "L": "000043173",
+    "a": "SPIRIDON, ALEXANDRA"
+  },
+  "852": {
+    "a": "82862",
+    "c": "061.3"
+  },
+  "CAT": {
+    "a": "SYS",
+    "c": "20201028",
+    "h": "082121"
+  },
+  "FMT": "BK",
+  "LDR": "-----nam--22------u-4500",
+  "LNG": "eng"
+}

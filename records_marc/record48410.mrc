@@ -1,0 +1,1 @@
+00360nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450015000932600070001084900060001780000085112016123020161230201027060222s1000------------r-----000-0-eng-d  aAbramovici, A  aHegedus, e  aOn Completing The Su(3) Baryon Mass Formula With The J Dependence  aTimisoara, Universitatea, Facultatea De Fizica 1968 6 P

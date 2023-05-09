@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450108000942600039002028520010002410000281192016123020161230201037060222s1000------------r-----000-0-eng-d  aKempe Wolfgang  aModul-und dampfungsmessungen an metall-einkristallen wahrend plastischer verformung. (teza de doctorat)  aStuttgart, Technischule, 1961. 41p  a17755

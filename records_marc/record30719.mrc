@@ -1,0 +1,1 @@
+00366nam--2200121-i-45000010010000000020009000100050015000190080041000342450109000752600033001847000017002178520010002340000262162016123020161230201036060222s1000------------r-----000-0-eng-d  aInternational series of monographs in natural phylosophy. vol. 20. an introduction to field quantization  aOxford, Pergamon Press, 1970  aHaar, D. Ter  a39640

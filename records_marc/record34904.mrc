@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000342450084000752600031001597000051001908520010002410000220182016123020161230201034060222s1000------------r-----000-0-eng-d  aHandbook of automation, computation and control. vol.iii:systems and components  aNew York, John Wiley, 1959  aEugene M.Grabbe, Simon Ramo, Dean E.Wooldridge  a15071

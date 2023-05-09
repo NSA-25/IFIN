@@ -1,0 +1,1 @@
+00365nam--2200121-i-45000010010000000020009000100050015000190080041000342450108000752600033001837000017002168520010002330000262222016123020161230201036060222s1000------------r-----000-0-eng-d  aInternational series of monographs in natural phylosophy. vol. 29. superconductivity and quantum fluids  aOxford, Pergamon Press, 1970  aHaar, D. Ter  a32992

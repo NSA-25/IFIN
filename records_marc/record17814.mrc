@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000341000012000752450117000872600035002048520009002390000391222016123020161230201042060222s1000------------r-----000-0-eng-d  aRigal,R  aLes hyperfrequences. circuits et propagation des ondes en vue de l`applications au radaret aux telecomunications  aParis, Eyrolles, 1950. X+224 P  a1116

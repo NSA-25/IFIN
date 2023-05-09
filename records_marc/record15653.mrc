@@ -1,0 +1,1 @@
+00365nam--2200121-i-45000010010000000020009000100050015000190080041000342450084000752600038001597000036001978520010002330000412842016123020161230201043060222s1000------------r-----000-0-eng-d  aSeries in nonlinear optics:vol.1:optics and nonlinear optics of liquid crystals  aSingapore, World-scientific, 1993  aIam-choon,Khoo And Shin-tson,Wu  a80598

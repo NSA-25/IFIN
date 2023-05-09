@@ -1,0 +1,1 @@
+00363nam--2200109-i-45000010010000000020009000100050015000190080041000342450137000752600031002128520010002430000501072016123020161230201048060222s1000------------r-----000-0-eng-d  aRaccolta delle comunicazioni presentate al congressino annuale dell`instituto nazionale di fisica nucleare. frascati, 6-9 mag., 1963  aRoma, C.N.E.N., 1963, 260p  a19639

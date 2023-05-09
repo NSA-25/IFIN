@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450100000922600053001928520008002450000336952016123020161230201039060222s1000------------r-----000-0-eng-d  aMuller Erich  aDie elektrometrische (potentiometrische massanalyse). sechste verbesserte und vermehrte auflage  aDresden..., Theodor Steinkopff, 1942, Xix + 294p  a989

@@ -1,0 +1,1 @@
+00352nam--2200109-i-45000010010000000020009000100050015000190080041000342450108000752600049001838520010002320000469242016123020161230201046060222s1000------------r-----000-0-eng-d  aWas nicht in den annalen steht. 2.stark erweiterte ausgabe der chemiker-anekdoten hrsg.von josef jausen  aWeinheim/Bergstr., Verlag Chemie, 1958, 116p  a14445

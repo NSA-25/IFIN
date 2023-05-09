@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450109000912600038002008520009002380000268942016123020161230201036060222s1000------------r-----000-0-eng-d  aKnorre, G.F  aCe este arderea? expunere stiintifica de popularizare a principiilor fizice ale arderii. trad.din l.rusa  aBucuresti, Ed.Tehnica, 1957, 264p  a4643

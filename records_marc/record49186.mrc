@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450100000932600039001934900013002320000077352016123020161230201027060222s1000------------r-----000-0-eng-d  aDewey, Melvil  aDewey decimal classification and relative index. edition 17 vol.1: introduction. general tables  aNew York, Forest Press, Inc., 1965  aIx+1254p

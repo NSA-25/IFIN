@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000341000038000752450068001132600062001818520008002430000034112016123020161230201025060222s1000------------r-----000-0-eng-d  aBarnes, R.Bowling, Gore, Robert C  aInfrared spectrosocpy. industrial applications and bibliography  aNew-york, Reinhold Publishing Corporation, 1944 V + 236 P  a618

@@ -1,0 +1,1 @@
+00362nam--2200109-i-45000010010000000020009000100050015000190080041000342450120000752600047001958520010002420000469372016123020161230201046060222s1000------------r-----000-0-eng-d  aWaste-heat recovery. twenty-one chapters based on a conference held by the institute of fuel at bournemouth in 1961  aLondon, Chapman & Hall Ltd., 1963, Xi+406p  a19354

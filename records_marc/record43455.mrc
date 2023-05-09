@@ -1,0 +1,1 @@
+00333nam--2200109-i-45000010010000000020009000100050015000190080041000342450078000752600034001537000036001870000134662016123020161230201030060222s1000------------r-----000-0-eng-d  aCrystals growth, properties and applications vol.2: growth and properties  aBerlin, Springer-verlag, 1978  aDemianets, L.N., Hesse, J./S.A.

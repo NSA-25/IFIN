@@ -1,0 +1,1 @@
+00353nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450039000952600039001344900058001730000071262016123020161230201027060222s1000------------r-----000-0-eng-d  aCuninghame, J.G  aIntroduction to the atomic nucleus  aAmsterdam, Elsevier Publ.Co., 1964  aTopics In Inorganic And General Chemistry Monograph 3

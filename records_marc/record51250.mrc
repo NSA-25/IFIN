@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000341000047000752450059001222600055001818520010002360000056702016123020161230201026060222s1000------------r-----000-0-eng-d  aAffonso, O.R., Ribeiro, L.P., Mitidieri, E  aPaper electrophoresis. a review of methods and results  aLondon, Elsevier Publishing Co., 1961. Xii + 463 P  a16748

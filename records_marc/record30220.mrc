@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000340800015000752450092000902600067001828520010002490000267152016123020161230201036060222s1000------------r-----000-0-eng-d  a621.87.697  aInstructiuni privind stabilirea taxelor pentru operatiile de controltehnic..ed.oficiala  aBucuresti, Ed.De Stat Pentru Imprimate Si Publicatii, 1967.14p  a27039

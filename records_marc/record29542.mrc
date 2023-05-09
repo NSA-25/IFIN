@@ -1,0 +1,1 @@
+00363nam--2200121-i-45000010010000000020009000100050015000190080041000342450077000752600052001524900028002048520009002320000273932016123020161230201036060222s1000------------r-----000-0-eng-d  aIntroduction to the methods of estimating nuclear power generating costs  aVienna, Intern. Atomic Energy Agency, 1961, 72p  aTechnical Report Series  a1875

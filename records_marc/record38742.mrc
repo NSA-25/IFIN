@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450113000962600041002098520010002500000181792016123020161230201032060222s1000------------r-----000-0-eng-d  aEinstein, Albert  aInvestigations on the theory of the brownian movement.edited with notes by r.furth. translated by a.d.cowper  aLondon, Constable, 1956.(Iv) + 119 P  a13419

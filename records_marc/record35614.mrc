@@ -1,0 +1,1 @@
+00380nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450096000952600058001918520009002490000213082016123020161230201034060222s1000------------r-----000-0-eng-d  aHecht, Heinrich  aSchaltschemata und differentialgleichungen electrischer und mechanischer schwingungsgebilde  aLeipzig, Johan Ambrosius Barth, 1950, Vii + 170p + 1f  a1647

@@ -1,0 +1,1 @@
+00363nam--2200109-i-45000010010000000020009000100050015000190080041000342450137000752600031002128520010002430000267142016123020161230201036060222s1000------------r-----000-0-eng-d  aInstructiuni privind dimensiionarea consumatorilor tampon de energie electrica si determinarea eficientei lor economice. ed.oficiala  aBucuresti, Esip, 1965. 84p  a17922

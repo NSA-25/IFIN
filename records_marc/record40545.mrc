@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450105000962600040002018520010002410000163762016123020161230201031060222s1000------------r-----000-0-eng-d  aMichelsen, J.C.F  aStudies on liquids time domain spectroscopy on polar liquids computers simulation of alkali h alides  aAmsterdam, Universiteit, 1977. 79 P  a78219

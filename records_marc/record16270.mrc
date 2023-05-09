@@ -1,0 +1,1 @@
+00374nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450108000942600040002028520010002420000406662016123020161230201042060222s1000------------r-----000-0-eng-d  aSchenk, Gustav  aVor der schwelle der letzten dinge. uber doe neuesten forschungen und erkentnisse der chemie und physik  aBerlin, Safari, /1955/. 308p.Cu Fig  a11610

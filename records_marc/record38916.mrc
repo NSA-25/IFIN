@@ -1,0 +1,1 @@
+00352nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450013000962600058001094900063001670000180052016123020161230201032060222s1000------------r-----000-0-eng-d  aEinstein, Albert  aMayer, w  aEinheitliche Theorie Von Gravitation Und Elektrizitat  aSonderausgabe Aus Der Sitzungbericht Der Preussischen Akad

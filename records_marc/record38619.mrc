@@ -1,0 +1,1 @@
+00352nam--2200109-i-45000010010000000020009000100050015000190080041000342450117000752600041001928520009002330000183022016123020161230201032060222s1000------------r-----000-0-eng-d  aFachkonferenz radioastronomie. jahrestagung der deutschen akademie der wissenschaften zu berlin vom 28 marz 1955  aBerlin, Akademie-verlag, 1958. 135 P  a6797

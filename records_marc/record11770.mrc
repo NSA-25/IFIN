@@ -1,0 +1,1 @@
+00376nam--2200109-i-45000010010000000020009000100050015000190080041000342450105000752600077001808520009002570000451692016123020161230201044060222s1000------------r-----000-0-eng-d  aTransactions of the vii-th international conference of high energy physics (sofia, sept.14-22, 1961)  aSofia, Centre Of Sci.And Techn.Information And Documentation, 1962, 119p  a8357

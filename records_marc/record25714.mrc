@@ -1,0 +1,1 @@
+00360nam--2200121-i-45000010010000000020009000100050015000190080041000342450105000752600030001807000018002108520010002280000312222016123020161230201038060222s1000------------r-----000-0-eng-d  aMathematics in science and engineering. vol.34: nonlinear autonomous oscillations. analytical theory  aNew York, Academic Press,  aUrabe, Minoru  a17315

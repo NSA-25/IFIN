@@ -1,0 +1,1 @@
+00364nam--2200109-i-45000010010000000020009000100050015000190080041000342450117000752600052001928520010002440000409902016123020161230201042060222s1000------------r-----000-0-eng-d  aSelected papers on stress analysis. presented at the inst.of physics stress analysis group conference delft 1959  aNew York, Reinhold Publ.Corporation, 1961, 114p  a16313

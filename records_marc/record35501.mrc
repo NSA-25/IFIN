@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000341000030000752450101001052600038002068520010002440000214212016123020161230201034060222s1000------------r-----000-0-eng-d  aHall, D. And A.S.Wightman  aA theorem on invariant analytic functions with applications to relativistic quantum field theory  aKobenhavn, Munksgaard, 1957. 41 P  a13213

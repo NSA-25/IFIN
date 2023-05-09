@@ -1,0 +1,1 @@
+00351nam--2200109-i-45000010010000000020009000100050015000190080041000342450106000752600051001818520009002320000263722016123020161230201036060222s1000------------r-----000-0-eng-d  aInstructiuni 179-63 pentru verificarea generatoarelor de laborator pentru radiorecvente pina la 30mhz  aBucuresti, Of.De Stat Pt.Metrologie, 1963. 28p  a9479

@@ -1,0 +1,1 @@
+00380nam--2200121-i-45000010010000000020009000100050015000190080041000342450079000752600057001544900037002118520010002480000433212016123020161230201044060222s1000------------r-----000-0-eng-d  aSymopsium on applied radiation and radiation and radioisotope test methods  aPhiladelphia, Amer.Soc.For Test.Mater.,1960. V+112 P  aThird Pacific Area Meeting Paprs  a18283

@@ -1,0 +1,1 @@
+00365nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450070000942600071001648520008002350000212332016123020161230201034060222s1000------------r-----000-0-eng-d  aJauncey, G.E.M  aModern physics. a second course in college physics. third edition  aToronto, New York, ..., D.Vand Nostrand Co.Inc., 1948, Xiii + 561p  a332

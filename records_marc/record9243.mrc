@@ -1,0 +1,1 @@
+00354nam--2200109-i-45000010010000000020009000100050015000190080041000342450114000752600045001898520010002340000476962016123020161230201046060222s1000------------r-----000-0-eng-d  aWissenschaftliche beitrage aus der ddr uber die friedliche anwndung der kernenergie. in:kernergie,zeitschrift  aBerlin, Veb Deutscher Verlag, 1958. 97 P  a12455

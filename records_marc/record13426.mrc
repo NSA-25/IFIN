@@ -1,0 +1,1 @@
+00352nam--2200109-i-45000010010000000020009000100050015000190080041000342450113000752600044001888520010002320000435132016123020161230201044060222s1000------------r-----000-0-eng-d  aTables of interatomic distances and configuratiion in molecules and ions, supplement 1956-1959. special publ  aLondon, The Chemical Soc.,1965. /P.Dif.  a14038

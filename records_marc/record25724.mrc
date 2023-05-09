@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000342450108000752600035001837000020002188520010002380000312122016123020161230201038060222s1000------------r-----000-0-eng-d  aMathematics in science and engineering. vol.18: nonlinear partial differential equaitons in engineering  aNew York, Academic Press, 1961  aAmes, William F  a17315

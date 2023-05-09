@@ -1,0 +1,1 @@
+00359nam--2200121-i-45000010010000000020009000100050015000190080041000342450053000752600083001284900016002118520010002270000277862016123020161230201037060222s1000------------r-----000-0-eng-d  aSpecification of high activity gamma-ray sources  aWashington, International Commission On Radiation Units And Measurements, 1973  aIcru Report  a39806

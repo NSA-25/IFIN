@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000341000027000752450085001022600057001878520010002440000363622016123020161230201040060222s1000------------r-----000-0-eng-d  aPittman, Charles Uriah  aThe behaviour of nonoenes, polyenes and carboxylic acids in sulfuric acid system  aAnn Arbor, Univ., Microfilms, Inc., 1964, Xvi + 204p  a24037

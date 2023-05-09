@@ -1,0 +1,1 @@
+00372nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450095000932600052001888520010002400000396242016123020161230201042060222s1000------------r-----000-0-eng-d  aRosin, Joseph  aReagent chemicals and standards, with methods of testing and assaying them ... 3-d edition  aNew York, Van Nostrand, /1955/, X + 561p.Cu Fig  a12078

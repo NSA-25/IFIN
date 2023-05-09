@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000342450113000752600033001887000016002218520010002370000262692016123020161230201036060222s1000------------r-----000-0-eng-d  aInternational series of monographs in natural philosophy. vol. 56. the logical analysis of quantum mechanics  aOxford, Pergamon Press, 1973  aD. Ter Haar  a43127

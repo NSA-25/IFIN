@@ -1,0 +1,1 @@
+00362nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450072000932600024001654900051001890000459782016123020161230201045060222s1000------------r-----000-0-eng-d  aVan Atta, C.M  aVacuum science and engineering. properties of gases at low pressure  aVacuum Measurements  aNew York, Mcgraw-hill Book Co., 1965, Xiv+459p

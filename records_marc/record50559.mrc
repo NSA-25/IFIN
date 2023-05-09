@@ -1,0 +1,1 @@
+00335nam--2200109-i-45000010010000000020009000100050015000190080041000342450108000752600033001838520009002160000063612016123020161230201026060222s1000------------r-----000-0-eng-d  aActivitatea de documentare si propaganda tehnica la uzina de tractoare  a.a.jdanov  din vladimir (urss)  aBucuresti, I.D.T., 1960 26 P  a9016

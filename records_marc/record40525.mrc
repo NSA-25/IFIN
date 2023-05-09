@@ -1,0 +1,1 @@
+00373nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450111000932600037002048520010002410000163962016123020161230201031060222s1000------------r-----000-0-eng-d  aBlanchard,J.M  aPhosphorylation in vivo et in vitro des proteines liees au rna heterogene nucleaire de cellule hela. these  aLanguedoc,Universite,1976. 170 P  a78257

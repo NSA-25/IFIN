@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000341000025000752450073001002600073001738520010002460000188772016123020161230201032060222s1000------------r-----000-0-eng-d  aDrees, J., Trinks, H  aRunaway - elektronen hoher stromdichte in einer toroidalen entladung  aBonn, Universitat Bonn- Physikalisches Institut, 1966. 38 P + 25 Fig  a24371

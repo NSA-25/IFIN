@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450113000932600039002068520010002450000163972016123020161230201031060222s1000------------r-----000-0-eng-d  aKoldewijn,Pim  aMixing between gamma-,beta-and groundstate bands in even deformed nuclei: a phenomenological approach. these  aAmsterdam,Universiteit,1977. 208 P  a78258

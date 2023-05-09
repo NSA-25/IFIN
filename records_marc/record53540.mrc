@@ -1,0 +1,1 @@
+00357nam--2200109-i-45000010010000000020009000100050015000190080041000341000035000752450125001102600012002350000033782016123020161230201025060222s1000------------r-----000-0-eng-d  aBradincourt, M.Et Roussilhe, M  aTables a 8 decimales ... calculees sous la dir ection de roussilhe ... bradincourt .... paris, section de geodesie, 1925  aPag.Dif

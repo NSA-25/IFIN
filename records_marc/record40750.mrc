@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000341000068000752450051001432600043001948520010002370000161712016123020161230201031060222s1000------------r-----000-0-eng-d  aZhernovoi ,Aleksandr Ivanovich And Latyshev,Georgii Dmitrievich  aNuclear magnetic resonance in a flowing liquid  aNew York,Consultants Bureau,1965. 166p  a77701

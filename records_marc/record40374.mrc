@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000342450081000752600039001564900044001958520010002390000165472016123020161230201031060222s1000------------r-----000-0-eng-d  aNon-perturbative quantum field theory. mathematical aspects and applications  aSingapore, World Scientific, 1992-  aAdvanced Series In Mathematical Physics  a79741

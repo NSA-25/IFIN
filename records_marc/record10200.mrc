@@ -1,0 +1,1 @@
+00291nam--2200097-i-45000010010000000020009000100050015000190080041000341000014000752450104000890000467392016123020161230201046060222s1000------------r-----000-0-eng-d  aWagner, D  aUber den energieverlust von elektronen in einem metallischen elektronenplasma unter berucksichtigug

@@ -1,0 +1,1 @@
+00349nam--2200121-i-45000010010000000020009000100050015000190080041000341000024000752450059000992600032001584900037001900000031572016123020161230201025060222s1000------------r-----000-0-eng-d  aCrandall, Stephen H  aEngineering analysis. a survey of numerical procedures  aNew York, Mcgraw-hill, 1956  aEngineering Societies Monographs

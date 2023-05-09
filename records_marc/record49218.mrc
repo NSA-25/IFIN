@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450105000952600047002008520010002470000077032016123020161230201027060222s1000------------r-----000-0-eng-d  aBakker, J.W. De  aMr 74 formal definition of algorithmic languag es with an application to the definition of al gol 60  aAmsterdam, Mathematisch Centrum, 1965. 55p  a24454

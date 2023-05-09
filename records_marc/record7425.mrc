@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450111000962600029002078520009002360000495162016123020161230201047060222s1000------------r-----000-0-eng-d  aProcopiu, Stefan  aSur la birefringence electrique et magnetique des suspensions. propositions donnees par la faculte. theses  aParis, Masson, 1924, 79p  a2211

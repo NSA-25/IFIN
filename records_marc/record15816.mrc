@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000342450110000752600036001857000017002218520010002380000411202016123020161230201043060222s1000------------r-----000-0-eng-d  aSemiconductor electronics education committes books. vol.4:characteristics and limitations of transistors  aNew York, John Wiley & Sons Inc  aR.D.Thornton  a22084

@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000341000051000752450054001262600047001804900029002270000051212016123020161230201026060222s1000------------r-----000-0-eng-d  aCottet, Jean., Laroche, Claude Et Varay, Andre  aTherapeutique medicale. (les grandes medications)  aParis, Editions Medicales Flammarion, 1956  aColl.Medico-chirurgicale

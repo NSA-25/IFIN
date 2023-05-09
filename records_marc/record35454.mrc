@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000342450061000752600061001367000039001978520010002360000214682016123020161230201034060222s1000------------r-----000-0-eng-d  aHandbuch der technischen dokumentation und bibliographie  aMunchen, Verlag Dokumentationen Der Technik, 1956. 594 P  aKarl-otto Saur Und Grete Gringmuth  a10351

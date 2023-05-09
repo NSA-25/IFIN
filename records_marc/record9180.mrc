@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000015000752450119000902600035002098520009002440000477592016123020161230201046060222s1000------------r-----000-0-eng-d  aYarwood, J  aHigh vacuum technique, theory, practice, industrial applications and properties of materials. 2-nd edition revised  aNew York, Wiley, 1948, Xi+140p  a1512

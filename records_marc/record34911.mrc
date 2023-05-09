@@ -1,0 +1,1 @@
+00359nam--2200109-i-45000010010000000020009000100050015000190080041000342450102000752600063001778520009002400000220112016123020161230201034060222s1000------------r-----000-0-eng-d  aThe hazards to man of nuclear applied radiations. a second report to the medical research council  aLondon, Her Majesty`S Stationery Office, 1960. Vii + 154 P  a1725

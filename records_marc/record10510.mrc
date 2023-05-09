@@ -1,0 +1,1 @@
+00380nam--2200121-i-45000010010000000020009000100050015000190080041000342450089000752600038001644900047002028520009002490000464292016123020161230201046060222s1000------------r-----000-0-eng-d  aUtilaj pentru prelucrarea prin deformare plastica a metalelor. cercetare documentara  aBucuresti, Ed.Tehnica, 1962, 129p  aBiblioteca Standardizarii. Seria Tehnica A  a3421

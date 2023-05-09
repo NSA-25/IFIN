@@ -1,0 +1,1 @@
+00354nam--2200109-i-45000010010000000020009000100050015000190080041000342450126000752600033002018520010002340000350852016123020161230201040060222s1000------------r-----000-0-eng-d  aOrganizarea stiintifica a informarii documentare. vol.2: probleme de organizare si administrare a sistemelor de informare  aBucuresti, I.D.T., 1970, 59p  a32443

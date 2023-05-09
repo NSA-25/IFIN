@@ -1,0 +1,1 @@
+00372nam--2200109-i-45000010010000000020009000100050015000190080041000342450123000752600054001988520010002520000053392016123020161230201026060222s1000------------r-----000-0-eng-d  aBackground material for the development of radiation protection standards.report nr.l of the federal radiation council  aWashington, U.S.Government Pint.Office, 1960. 39p  a12193

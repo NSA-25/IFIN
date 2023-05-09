@@ -1,0 +1,1 @@
+00364nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450096000942600042001908520010002320000398252016123020161230201042060222s1000------------r-----000-0-eng-d  aRougny, Robert  aMesure de vies moyennes d`etats nucleaires excites dans le domaine de la nanoseconde. these  aLyon, Faculte Des Sciences, 1964, 77p  a19896

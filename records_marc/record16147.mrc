@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450109000922600037002018520010002380000407892016123020161230201042060222s1000------------r-----000-0-eng-d  aSchutte,Karl  aIndex math.tafelwerke und tabellen. aus allen gebieten der naturwissenschaften. bearbeitet von k.schutte  aMunchen, Oldenbourg, 1955. 143 P  a11613

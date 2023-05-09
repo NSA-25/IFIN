@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450102000922600041001948520010002350000055832016123020161230201026060222s1000------------r-----000-0-eng-d  aBelevitch, V  aTheorie des circuits non-lineaires en regime alternatif.(redresseurs, modulateurs, oscillat eurs)  aParis, Gauthier-villars, 1959. 293 P  a16391

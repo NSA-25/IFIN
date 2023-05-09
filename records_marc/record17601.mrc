@@ -1,0 +1,1 @@
+00361nam--2200109-i-45000010010000000020009000100050015000190080041000342450113000752600053001888520010002410000393352016123020161230201042060222s1000------------r-----000-0-eng-d  aPraktische beispiele zur automatisierung aus der bundesrepublik deutschland, england, frankreich und italien  aMunchen, Carl Hanser Verlag, 1959, 202p., 66 Fig  a10373

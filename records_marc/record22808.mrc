@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450100000912600058001918520010002490000341282016123020161230201039060222s1000------------r-----000-0-eng-d  aNeuman, B.H  aSpecial topics in algebra:universal algebra. lecturees delivered in the fall semester 1961-1962  aNew York, Courant Inst.Of Math.Sciences, 1962. Ii+78p  a21912

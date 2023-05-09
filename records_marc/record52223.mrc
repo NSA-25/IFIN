@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450017000942600081001114900055001920000046962016123020161230201026060222s1000------------r-----000-0-eng-d  aAbrikosov, A.I  aStrukov, a.i  aAnatomia Patologica. Partea A Ii-a. Anatomia Patologica Si Patogenia Bolilor  aBucuresti, Editura Medicala, 1956 518 P. , 273 Fig

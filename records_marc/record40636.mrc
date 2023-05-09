@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450117000932600033002108520010002430000162852016123020161230201031060222s1000------------r-----000-0-eng-d  aFronteau,Jean  aUne methode d etude des faisceaux secondaires de haute energie dans le vide et dans les mileaux diffuseure.these  aParis,Universite,1964. 207 P  a78057

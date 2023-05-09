@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000342450118000752600039001937000017002328520010002490000370132016123020161230201041060222s1000------------r-----000-0-eng-d  aPrinciples of modern chemisstry. a guide to advanced study. a series of monographs. 2: physical organic chemistry  aAmsterdam, Elsevier Publ.Co., 1966  aForbres, W.F  a24628

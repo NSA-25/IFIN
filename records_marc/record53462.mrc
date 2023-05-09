@@ -1,0 +1,1 @@
+00378nam--2200121-i-45000010010000000020009000100050015000190080041000341000028000752450088001032600056001918520009002470000034562016123020161230201025060222s1000------------r-----000-0-eng-d  aBernheim, G.Et Guyot, M  aTraite d analyses par les rayons ultraviolets filtres. preface du prof.a.d arsonval  aParis, Norbert Maloine, 1932 Viii + 363 P.Cu Ilustr  a3232

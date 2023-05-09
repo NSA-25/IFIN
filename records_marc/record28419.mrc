@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000341000045000752450058001202600057001788520010002350000285162016123020161230201037060222s1000------------r-----000-0-eng-d  aLangenhop, Carl E. And Mathews, Jerold C  aDiscrete and continous methods in applied mathematics  aNew York, John Wiley & Sons, Inc., 1966, Xiii + 525p  a27458

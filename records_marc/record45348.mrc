@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000340800017000752450120000922600037002128520010002490000115732016123020161230201029060222s1000------------r-----000-0-eng-d  a621.38.049.7  aThe application of linear microcircuits. by the applications engineering staff of the sgs-fairchild group. handbook  aSgs-fairchild /F.Ed./F.An/ 174 P  a39259

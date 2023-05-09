@@ -1,0 +1,1 @@
+00372nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450100000942600047001948520009002410000272292016123020161230201036060222s1000------------r-----000-0-eng-d  aKeller Manfred  aRontgenleitfahigkeit amorpher selen-schichten und ihre anwendung in der rontgenbild-verstarkung  aStuttgart, Technische Hochschule,1955.106p  a5770

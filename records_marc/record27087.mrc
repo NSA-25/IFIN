@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000341000024000752450017000992600072001164900060001880000298492016123020161230201037060222s1000------------r-----000-0-eng-d  aLakshmi, Jaganmohan  aRao, boppana  aTransiet Wave Propagation In Dispersive Or Conducting Media.Thesisi  aAnn Arbor, University Microfilms Inc., 1966. Vii + 127p

@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450126000912600033002178520010002500000162982016123020161230201031060222s1000------------r-----000-0-eng-d  aVolochine,B  aEtude par diffusion de la lumiere de la dynamique des fluctuations des concentrations d un melange binaire critique.these  aParis,Universite,1973. 220 P  a78007

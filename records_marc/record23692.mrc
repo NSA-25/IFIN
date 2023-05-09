@@ -1,0 +1,1 @@
+00342nam--2200109-i-45000010010000000020009000100050015000190080041000342450105000752600043001808520009002230000332442016123020161230201039060222s1000------------r-----000-0-eng-d  aMetode moderne de analiza in industrie.metode optice.culegere prelucrata din lb. rusa de i.banateanu  aBucuresti, Editura Tehnica, 1962. 207p  a8453

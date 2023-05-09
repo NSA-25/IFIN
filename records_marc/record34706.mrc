@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450103000932600049001968520010002450000222162016123020161230201034060222s1000------------r-----000-0-eng-d  aHess, Walther  aDas dynamische verhalten einer plasmasaule in einem zeitliich veranderlichen langsmagnetfeld. teza  aStuttgart, Technische Hochschule, 1963, 71 P  a19001

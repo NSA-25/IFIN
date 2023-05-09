@@ -1,0 +1,1 @@
+00358nam--2200121-i-45000010010000000020009000100050015000190080041000341000015000752450069000902600068001598520009002270000318192016123020161230201038060222s1000------------r-----000-0-eng-d  aMalov, N.N  aCurs de electrotehnica si radiotehnica. traducere din limba rusa  aBucuresti, Editura Energetica De Stat, 504p. Cu Ilustrate+erata  a3482

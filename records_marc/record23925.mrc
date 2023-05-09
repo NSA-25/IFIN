@@ -1,0 +1,1 @@
+00374nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450103000942600045001978520010002420000330112016123020161230201039060222s1000------------r-----000-0-eng-d  aMeijering, J.L  aConsiderations sur l`effet snoek dans le cas de sites non-equivalents pour les atomes en insertion  aEindhoven, Laboratoria Philips, 1961. 7p  a17979

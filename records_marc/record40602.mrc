@@ -1,0 +1,1 @@
+00365nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450107000942600032002018520010002330000163192016123020161230201031060222s1000------------r-----000-0-eng-d  aGermain,Claude  aEtude de quelques champs magnetiques a poten tiel vecteur par l analogie rheoelectrique conjugee.these  aParis,Universite,1959. 45 P  a78032

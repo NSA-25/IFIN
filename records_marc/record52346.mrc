@@ -1,0 +1,1 @@
+00356nam--2200121-i-45000010010000000020009000100050015000190080041000341000030000752450030001052600043001354900056001780000045732016123020161230201026060222s1000------------r-----000-0-eng-d  aBussard, R.W., Delauer, D  aNuclear rocket propulsion  aNew York, Mcgraw-hill Book Comp., 1958  aMcgraw-hill Series In Missile And Space Techno Logy

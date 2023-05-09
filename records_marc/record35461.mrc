@@ -1,0 +1,1 @@
+00367nam--2200109-i-45000010010000000020009000100050015000190080041000342450133000752600039002088520010002470000214612016123020161230201034060222s1000------------r-----000-0-eng-d  aHigh polymers. a series of monographs on the chemistry, physics and technology of high polimeric substances. vol.xi: polyetylene  aNew York,, Interscience Publishers  a12280

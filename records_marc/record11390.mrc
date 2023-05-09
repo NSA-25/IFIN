@@ -1,0 +1,1 @@
+00357nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450089000962600041001858520009002260000455492016123020161230201045060222s1000------------r-----000-0-eng-d  aTrlifaj Ladislav  aOn the anisotropy of a heterogenous medium with respect to the diffusion of neutrons  aPraha, Ceskoslovenska Akad.Ved, 1957  a6267

@@ -1,0 +1,1 @@
+00356nam--2200109-i-45000010010000000020009000100050015000190080041000342450117000752600044001928520010002360000161762016123020161230201031060222s1000------------r-----000-0-eng-d  aJahrbuch 1962 des adolf-schmidt- observatioriums fur erdmagnetismus in niemegk mit wissenschaftlich mitteihungen  aBerlin,Akademie Verlag,1964. 171p.+ Fig  a77706

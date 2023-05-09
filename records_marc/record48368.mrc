@@ -1,0 +1,1 @@
+00355nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450015000932600065001084900060001730000085532016123020161230201027060222s1000------------r-----000-0-eng-d  aAbramovici, A  aHegedus, e  aUber Die Abhangigkeit Der Barionenmassen Vom  Banhdrehimpuls  aTimisoara, Universitatea, Facultatea De Fizica 1968 8 P

@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000341000016000752450110000912600049002018520009002500000477002016123020161230201046060222s1000------------r-----000-0-eng-d  aWitt,Holjer  aStrahlungsmessungem im fermen ultrarot un beitrage zur kenntnis des absorption spektrum des wasserdampfes  aLund, Hakan Ohlssons Boktryckeri, 1924. 47 P  a5796

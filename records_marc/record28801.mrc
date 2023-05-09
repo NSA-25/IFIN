@@ -1,0 +1,1 @@
+00379nam--2200109-i-45000010010000000020009000100050015000190080041000342450150000752600035002258520009002600000281342016123020161230201037060222s1000------------r-----000-0-eng-d  aLehr-und ubungsbuch der mathematik fur ingenieur-und fachschulen. 2.verbess.und erw.auj. bd.i: aritmethik, algebra und elementare funktionenlehre  aLeipzig, Fachbuchverlag, 1960,  a6397

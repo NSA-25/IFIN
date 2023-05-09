@@ -1,0 +1,1 @@
+00349nam--2200109-i-45000010010000000020009000100050015000190080041000341000018000752450096000932600050001890000024112016123020161230201025060222s1000------------r-----000-0-eng-d  aFetzer Viktor  aEinschwingvorgange in der nachtichtentechnik. eine einfuhrung in ihre praktische behandlung  aBerlin, Verlag Technik, 1958. 356 P., 187 Fig

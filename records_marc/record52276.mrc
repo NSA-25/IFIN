@@ -1,0 +1,1 @@
+00368nam--2200109-i-45000010010000000020009000100050015000190080041000342450129000752600045002048520009002490000046432016123020161230201026060222s1000------------r-----000-0-eng-d  aAschierea cu scule armate cu placute minera- lo-ceramice. culegere de referate de la ses. tehn.-st. traducere din limba rusa  aBucuresti, I.D.T., 1959 193 P. Cu Figuri  a6169

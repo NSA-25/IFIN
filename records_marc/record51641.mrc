@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450112000942600032002068520010002380000052792016123020161230201026060222s1000------------r-----000-0-eng-d  aAverbach, B. L  aFracture. proceedings of an internatinal conference on the atomic mechanisms of fracture held in swampscott  aNew York, 1959 Xvii + 646 P  a11508

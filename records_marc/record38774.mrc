@@ -1,0 +1,1 @@
+00349nam--2200109-i-45000010010000000020009000100050015000190080041000342450113000752600041001888520010002290000181472016123020161230201032060222s1000------------r-----000-0-eng-d  aElektronentheorie der homoopolared bindung hauptjahres tagung der chemischen gesellscheft in der d.d.r. 1955  aBerlin, Akademie Verlag, 1956. 164 P  a12297

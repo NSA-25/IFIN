@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000019000752450103000942600046001978520010002430000163952016123020161230201031060222s1000------------r-----000-0-eng-d  aDelorme,Claude  aL asymetrie del ion cuivre bivalent dans des combinesons du  type na cl  du  type spinelle  .these  aParis,Librairie Masson Et C-ie,1956. 52 P  a78256

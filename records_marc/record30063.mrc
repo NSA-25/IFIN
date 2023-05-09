@@ -1,0 +1,1 @@
+00368nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450092000932600052001858520009002370000268722016123020161230201036060222s1000------------r-----000-0-eng-d  aKnoch, Werner  aDie extraktion von plutonium, uran, ruthenium und zirkonium mit tri-iso-octylamin. teza  aBraunschweig, Technische Hochschule, 1961, 103p  a9200

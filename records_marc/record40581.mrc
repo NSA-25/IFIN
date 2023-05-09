@@ -1,0 +1,1 @@
+00326nam--2200109-i-45000010010000000020009000100050015000190080041000341000019000752450080000942600042001740000163402016123020161230201031060222s1000------------r-----000-0-eng-d  aAverous,Michel  aContribution a l etude des properties de torosion des fibres textiles.these  aParis,Faculte Des Sciences,1968. 38 P

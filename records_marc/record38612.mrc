@@ -1,0 +1,1 @@
+00341nam--2200109-i-45000010010000000020009000100050015000190080041000342450073000752600074001488520009002220000183092016123020161230201032060222s1000------------r-----000-0-eng-d  aFolosirea materialelor plastice in constructia matritelor de stantat  aBucuresti, Institutul De Documentare Tehnica, 1959.   25 P. Cu 13 Fig  a6699

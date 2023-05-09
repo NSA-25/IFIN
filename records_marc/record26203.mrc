@@ -1,0 +1,1 @@
+00356nam--2200121-i-45000010010000000020009000100050015000190080041000341000020000752450021000952600037001164900081001530000307332016123020161230201038060222s1000------------r-----000-0-eng-d  aMcclure, Walter  aWildermuth, karl  aCluster Representation Of Nuclei  aSpringer Tracts In Modern Physics.Ergebnisse Der Exakten Naturwissenschaften

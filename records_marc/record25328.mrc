@@ -1,0 +1,1 @@
+00372nam--2200121-i-45000010010000000020009000100050015000190080041000342450089000752600058001647000018002228520010002400000316082016123020161230201038060222s1000------------r-----000-0-eng-d  aLectures in applied mathematics. vol.2:mathematical problems of relativistic physics  aProvidence, Rhode Island, American Math.Society, 1965  aIrvin E.Segal  a30649

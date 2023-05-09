@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000341000035000752450094001102600036002048520009002400000500702016123020161230201048060222s1000------------r-----000-0-eng-d  aBaptidanov, L.N., Tarasov, V.I  aElektrooborudovanie elektricheskih stancii i podstancii. izdanie 2-e. ch. 1 - osnovnoe ..  aMoskva, Gosenergoizdat, 1952-53  a2993

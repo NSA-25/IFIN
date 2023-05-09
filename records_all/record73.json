@@ -1,0 +1,48 @@
+{
+  "IDN": "000056868",
+  "001": "000056868",
+  "002": "20200911",
+  "005": "20200911030449",
+  "008": "200911s1000------------r-----000-0-eng-d",
+  "040": {
+    "a": "IFIN-HH"
+  },
+  "0411": {
+    "a": "eng"
+  },
+  "1001": {
+    "L": "000043219",
+    "a": "Sherrill, Bradley M."
+  },
+  "24510": {
+    "a": "ENAM 98. Exotic Nuclei and Atomic Masses. Vol 455",
+    "c": "Bradley, M. Sherrill; David J. Morrissey; Carry N. Davids (eds.)"
+  },
+  "260": {
+    "a": "New York",
+    "b": "American Institute of Physics",
+    "c": "1998"
+  },
+  "300": {
+    "a": "XXVI+1054 p."
+  },
+  "500": {
+    "a": "Donatie Acad. Nicolae Victor Zamfir"
+  },
+  "7001": {
+    "L": "000043221",
+    "a": "Davids, Cary N."
+  },
+  "852": {
+    "a": "82800",
+    "c": "NVZ"
+  },
+  "CAT": {
+    "a": "SYS",
+    "c": "20200911",
+    "h": "030449"
+  },
+  "FMT": "BK",
+  "LDR": "-----nam--22------u-4500",
+  "LNG": "eng"
+}

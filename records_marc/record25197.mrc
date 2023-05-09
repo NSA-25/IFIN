@@ -1,0 +1,1 @@
+00361nam--2200121-i-45000010010000000020009000100050015000190080041000341000017000752450018000922600076001104900053001860000317392016123020161230201038060222s1000------------r-----000-0-eng-d  aLinter, Karl  aSchmid, erich  aWerkstoffe Des Reaktorbaues Mit Besonderer Berucksichtigung Der Metalle  aBerlin, Springer-verlag, 1962. Viii+592p.+405fig

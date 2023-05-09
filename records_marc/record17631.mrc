@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000341000028000752450087001032600049001908520009002390000393052016123020161230201042060222s1000------------r-----000-0-eng-d  aRodicker,H. And Geier,K  aPhysikalisch-chemische untersuchungsmethden. band i:elektrochemissche messmethoden  aLeipzig,Veb Deutscher Verlag F.Grund.. 384 P  a9030

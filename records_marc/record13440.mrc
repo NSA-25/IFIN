@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000342450090000752600054001654900026002198520010002450000434992016123020161230201044060222s1000------------r-----000-0-eng-d  aTables of the bessel functions of the first kind of orders.....vol.6.seven,eight,nine  aCambridge, Massachussets, Harvard Univ.,1947-1948  aAnnals Of Computation  a12300

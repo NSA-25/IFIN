@@ -1,0 +1,1 @@
+00363nam--2200109-i-45000010010000000020009000100050015000190080041000342450096000752600072001718520010002430000072812016123020161230201027060222s1000------------r-----000-0-eng-d  aCommutateurs rotatifs (a faible intensite nomi nale) regles generales et methodes de mesure  aGeneve, Commission Electrotechnique Internatio Nale, 1962-1963 41 P  a21938

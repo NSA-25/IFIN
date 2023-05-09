@@ -1,0 +1,1 @@
+00355nam--2200109-i-45000010010000000020009000100050015000190080041000342450104000752600056001798520010002350000385382016123020161230201041060222s1000------------r-----000-0-eng-d  aRepertoire des scientifiques francais: t.2: mathematiques appliquees. mecanique. physique theorique  aParis, La Documentation Francaise, 1965, 1966, 283p  a26903

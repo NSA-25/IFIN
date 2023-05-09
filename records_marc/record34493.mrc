@@ -1,0 +1,1 @@
+00348nam--2200109-i-45000010010000000020009000100050015000190080041000342450082000752600071001578520010002280000224292016123020161230201034060222s1000------------r-----000-0-eng-d  aHow to write effective reports. programed by itt federal electric corporation  aReading, Mass.,Addison-wesley Publ.Co.,Inc.,1965. Ix + 310p. + 17p  a22122

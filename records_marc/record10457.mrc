@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000341000015000752450108000902600040001988520009002380000464822016123020161230201046060222s1000------------r-----000-0-eng-d  aVihman,V.S  aInstalatii electrice automate entru controlul tehnic al produselor din industra constructoare de masini  aBucuresti, Idt, 1959. 280 P.+ Erata  a5476

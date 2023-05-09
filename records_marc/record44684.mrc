@@ -1,0 +1,1 @@
+00379nam--2200121-i-45000010010000000020009000100050015000190080041000340800010000752450129000852600032002148520011002460000122372016123020161230201029060222s1000------------r-----000-0-eng-d  a061.6  aCatalog cu produse si servicii ale unitatilor de ceercetare. partea i-a:aparate, produse, inchirieri de apa rate, colaborari  aBucuresti, Cnst, 1971. 88 P  aD.2093

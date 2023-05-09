@@ -1,0 +1,1 @@
+00380nam--2200121-i-45000010010000000020009000100050015000190080041000341000045000752450029001202600099001498520010002480000446612016123020161230201044060222s1000------------r-----000-0-eng-d  aThompson, Brian J. And Parrent, George B  aPhysical optics notebook  aRedondo Beach, California, Society Of Photo-optical Instrumentation Engineers, 1971, Vii + 63p  a42267

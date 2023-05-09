@@ -1,0 +1,1 @@
+00380nam--2200109-i-45000010010000000020009000100050015000190080041000342450158000752600027002338520010002600000389912016123020161230201042060222s1000------------r-----000-0-eng-d  aReview series. developments in the peaceful applications of nuclear energy: no.13: radiation-initiated polymerization and graft polymerization. r.roberts  aVienna, I.A.E.A., 1961  a14678

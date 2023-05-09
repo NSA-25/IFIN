@@ -1,0 +1,1 @@
+00344nam--2200109-i-45000010010000000020009000100050015000190080041000341000019000752450096000942600044001900000432842016123020161230201044060222s1000------------r-----000-0-eng-d  aSwift,Arthur R  aDispersion relations for analytically continued partial wave amplitudes in potential theory  aPhiladelphia, Univ.Of Pensilvania. 27 P

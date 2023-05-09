@@ -1,0 +1,1 @@
+00382nam--2200121-i-45000010010000000020009000100050015000190080041000342450117000752600027001927000031002198520010002500000452122016123020161230201044060222s1000------------r-----000-0-eng-d  aTechnique of organic chemistry.vol.ix/ii:chemical appl.of spectroscopy. part ii:microwawe molecular spectroscopy  aNew York, Interscience  aWaltergordyandrobertl.Cook  a12776

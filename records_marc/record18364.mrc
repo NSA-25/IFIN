@@ -1,0 +1,1 @@
+00343nam--2200109-i-45000010010000000020009000100050015000190080041000342450108000752600041001838520009002240000385722016123020161230201041060222s1000------------r-----000-0-eng-d  aRepertoriul periodicelor straine din r.p.r. abonamente 1962. seria a: stiinta in general. matematica ..  aBucuresti, Bibl.Centr.De Stat, 1963,  a8676

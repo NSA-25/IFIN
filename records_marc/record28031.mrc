@@ -1,0 +1,1 @@
+00354nam--2200109-i-45000010010000000020009000100050015000190080041000342450122000752600038001978520009002350000289052016123020161230201037060222s1000------------r-----000-0-eng-d  aEtude dilatometrique d`un alliage d`aluminium.(extrait du 12-eme congres de chimie industrielle, 25 sept.-3 oct.1932)  aParis, Imp.De Vaugirard, 1933. 3p  a1031

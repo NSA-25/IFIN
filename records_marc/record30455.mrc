@@ -1,0 +1,1 @@
+00351nam--2200109-i-45000010010000000020009000100050015000190080041000342450105000752600051001808520010002310000264802016123020161230201036060222s1000------------r-----000-0-eng-d  aInstructiuni 199-65 pentru verificarea pulsatoarelor hidralulice de incercari oscilante. ed.oficiale  aBucuresti, Of.De Stat Pt.Metrologie, 1966. 47p  a24289

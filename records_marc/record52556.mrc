@@ -1,0 +1,1 @@
+00376nam--2200109-i-45000010010000000020009000100050015000190080041000342450137000752600040002124900014002520000043632016123020161230201025060222s1000------------r-----000-0-eng-d  aCours sur la protection contre les radiations ionisantes professes au centre d etudes nucleaires de saclay du 19 nov.au 14 dec.,1956  aLondon, Paris, Pergamon Press, 1958  aXiii+435p

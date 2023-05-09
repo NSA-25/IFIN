@@ -1,0 +1,1 @@
+00369nam--2200121-i-45000010010000000020009000100050015000190080041000341000040000752450079001152600041001944900012002350000061642016123020161230201026060222s1000------------r-----000-0-eng-d  aDurrum, E.L., Zweig, G., Block, R.J  aA manual of paper chromatography and paper electrophoresis. second edition  aNew York, Academic Press, Inc., 1958  aXi+710p

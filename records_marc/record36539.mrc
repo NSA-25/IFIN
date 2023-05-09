@@ -1,0 +1,1 @@
+00333nam--2200109-i-45000010010000000020009000100050015000190080041000342450090000752600048001658520010002130000203832016123020161230201033060222s1000------------r-----000-0-eng-d  aEinfuhrung in die naturphilosophie. naturerkenntnis und wirklichkeit.von:hans sachsse  aBraunschweig, Friedr.Vieweg And Sohn, 1967-  a76732

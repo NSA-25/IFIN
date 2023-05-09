@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000341000023000752450105000982600036002038520009002390000408282016123020161230201042060222s1000------------r-----000-0-eng-d  aSchwarzmann,Sigrid  aUber die feldspat und feldspatgesteinsfremdlinge in den tertiarvulkanen des oberweser-fulda-gebietes  aGottingen, 1957. 165 P. + 3 Taf  a4823

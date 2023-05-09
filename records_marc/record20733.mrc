@@ -1,0 +1,1 @@
+00376nam--2200121-i-45000010010000000020009000100050015000190080041000341000014000752450113000892600042002028520010002440000362032016123020161230201040060222s1000------------r-----000-0-eng-d  aOates,J.A  aAutomation in production engineering. a practical guide to automatic production and gauging in machine shops  aLondon, George Newnes, 1958. Vii+326p  a14814

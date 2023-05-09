@@ -1,0 +1,1 @@
+00377nam--2200121-i-45000010010000000020009000100050015000190080041000341000021000752450092000962600058001888520009002460000284782016123020161230201037060222s1000------------r-----000-0-eng-d  aLeonhard, Werner  aBeitrage zur berechnung und zum entwurf polarisierter magnetischer glechstromverstarker  aStuttgart, Technischen Hochschule, 1954, 78p., 71 Fig  a5785

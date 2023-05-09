@@ -1,0 +1,1 @@
+00381nam--2200121-i-45000010010000000020009000100050015000190080041000342450077000752600066001524900031002188520010002490000278392016123020161230201037060222s1000------------r-----000-0-eng-d  aMultivariable control system design and applications. 1-3 september 1971  aTunbridge Wels, The Institution Of Electrical Engineers, 1971  aIee Conference Publication  a39452

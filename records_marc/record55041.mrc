@@ -1,0 +1,1 @@
+00367nam--2200121-i-45000010010000000020009000100050015000190080041000341000043000752450056001182600061001748520010002350000018752016123020161230201024060222s1000------------r-----000-0-eng-d  aEstrada, Melchior S., Herrick, Clyde N  aExperiments in semiconductor application and design  aNew York, London, John Wiley And Sons, Inc., 1963. 197 P  a19715

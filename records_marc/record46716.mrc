@@ -1,0 +1,1 @@
+00371nam--2200121-i-45000010010000000020009000100050015000190080041000341000038000752450075001132600051001888520010002390000102052016123020161230201028060222s1000------------r-----000-0-eng-d  aAzumi M., Fujiwaka S. And Mohri A  aConstruction of l = 2 torsatron without use of toroidal coils (spac-i)  aNegoya, Institute Of Plasma Physics, 1971 26 P  a36723

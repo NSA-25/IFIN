@@ -1,0 +1,1 @@
+00375nam--2200121-i-45000010010000000020009000100050015000190080041000341000050000752450065001252600054001908520009002440000447122016123020161230201044060222s1000------------r-----000-0-eng-d  aTihomirov, A.V., Drinberg, A.Ia.Si Sbedze, Al  aTehnologia acoperirilor de lacuri si vopsele. trad.in l.rusa  aBucuresti, Inst.De Docum.Tehnica, 268-353p.+erata  a1360

@@ -1,0 +1,1 @@
+00322nam--2200109-i-45000010010000000020009000100050015000190080041000341000017000752450086000922600034001780000177792016123020161230201032060222s1000------------r-----000-0-eng-d  aBoit, Hans G  aBeilsteins handbuch der organischen chemie. vierte auflage. vierte erganzungswerk  aBerlin, Springer Verlag, 1972

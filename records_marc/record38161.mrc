@@ -1,0 +1,1 @@
+00370nam--2200121-i-45000010010000000020009000100050015000190080041000341000018000752450084000932600061001778520010002380000187602016123020161230201032060222s1000------------r-----000-0-eng-d  aFlorine, Jean  aLa synthese des machines logiques et son automatisation.preface du prof.hoffman  aBruxelles, Presses Academiques Europeennes, 1964.  345 P  a21171
